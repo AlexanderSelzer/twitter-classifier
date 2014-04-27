@@ -1,96 +1,113 @@
 var natural = require("natural");
-var readline = require("readline");
+var ntwitter = require("ntwitter");
 var fs = require("fs");
-var colors = require("colors");
 
-if (!fs.existsSync("classifier.json")) {
+var readline = require("readline");
 
-console.log("Classifier does not exist. Creating one.");
-  
-var classifier = new natural.BayesClassifier();
-
-classifier.addDocument("I hate you!", "negative");
-classifier.addDocument("You suck!", "negative");
-classifier.addDocument("You are the most evil person on the planet", "negative");
-classifier.addDocument("There is nothing good about you", "negative");
-classifier.addDocument("Your JavaScript is bad!", "negative");
-classifier.addDocument("I never saw such a bad HTTP server like yours", "negative");
-
-classifier.addDocument("I love your npm module!", "positive");
-classifier.addDocument("You have really many cool projects on GitHub.", "positive");
-classifier.addDocument("This vector drawing looks really nice. Did you use Inkscape?", "positive");
-classifier.addDocument("Great idea of you, buying these BitCoins", "positive");
-classifier.addDocument("I like you", "positive");
-classifier.addDocument("You are nice", "positive");
-
-classifier.train();
-  
-classifier.save("classifier.json", function(err, classifier) {
-  if (err) console.log(err);
-  process.exit();
-});
-
-}
+var credentials = require("./credentials.json");
+var twitter = new ntwitter(credentials);
 
 natural.BayesClassifier.load("classifier.json", null, function(err, classifier) {
 
-if (err) console.log(err);
-  
-var read = readline.createInterface(process.stdin, process.stdout);
+  var tweets = [];
+  var results = [];
 
-read.setPrompt("say something ... ");
-read.prompt();
-
-var gotLine = false;
-var classificationLine;
-var classificationResult;
-
-read.on("line", function(line) {
-  if (!gotLine) {
-    line = line;
-    var classifications = classifier.getClassifications(line);
-    // Save the line for the next step.
-    classificationLine = line;
-    classificationResult = classifier.classify(line);
-    
-    console.log(classificationResult);
-    classifications.forEach(function(classification) {
-      console.log(classification.value);
+  twitter.
+  verifyCredentials(function(err, data) {
+    if (err) console.log(err);
+  })
+  .stream("statuses/sample", {
+    language: "en",
+    filter_level: "medium" // removes not-so-nice tweets
+  }, function(stream) {
+    stream.on("error", function(err) {
+      return console.log("Problem:", err);
     });
-    gotLine = true;
-    read.setPrompt("Right? (y/n)");
-  }
-  else {
-    var decision;
-    if (line.toLowerCase() == "y") {
-      // The decision is the result of the algorithm before.
-      
-      decision = classificationResult;
+
+    if (process.argv[2] === "analyze") {
+      stream.on("data", analyze);
     }
     else {
-      // "You are wrong, computer!"
-      if (classificationResult === "positive") {
-        // Invert the choice of the algorithm
-        decision = "negative";
-      }
-      else {
-        decision = "positive";
+      stream.on("data", interactive);
+    }
+
+    function analyze(data) {
+      var classifications = classifier.getClassifications(data.text);
+      var label = classifications.sort(function(a, b) {
+        return a < b;
+      })[0].label;
+
+      results.push({
+        classifications: classifications,
+        content: data.text,
+        label: label
+      });
+      
+      if (results.length > 600) {
+        fs.writeFileSync("results.json", JSON.stringify(results, null, 2));
+        var readable =
+          "Text | Label\n" +
+          "------|------\n" +
+          results.reduce(function(results, result) {
+            if (result)
+              return results + "\n" + result.content.replace(/\n/, " ") + " | " + result.label;
+            else
+              return "";
+          });
+        fs.writeFileSync("results.md", readable);
+        stream.destroy();
       }
     }
-    console.log("Your decision was".green, decision, "for the line".green, classificationLine, "which was classified".green, classificationResult);
-    classifier.addDocument(classificationLine, decision);
-    classifier.train();
-    
-    read.setPrompt("say something ... ");
-    gotLine = false;
-  }
-  read.prompt();
-})
-.on("close", function() {
-  classifier.save("classifier.json", function(err, classifier) {
-    if (err) console.log(err);
-    process.exit();
+
+    function interactive(data) {
+      var classifications = classifier.getClassifications(data.text);
+      if (data.lang === "en") {
+        tweets.push({
+          content: data.text,
+          classifications: classifications
+        });
+      }
+      if (tweets.length > 100) {
+        stream.destroy();  
+        console.log(tweets);
+
+        var rl = readline.createInterface(process.stdin, process.stdout);
+        
+        var i = 0;
+        (function getResult() {  
+
+          var classification = tweets[i].classifications;
+          console.log(tweets[i].content);
+          console.log(classification);
+
+          i++;
+          rl.question("Positive or negative? (p/n): ", function(answer) {
+            console.log("Answer:", answer);
+
+            var decision;
+            
+            if (/p/.test(answer)) 
+              decision = "positive";
+            else if (/n/.test(answer))
+              decision = "negative";
+
+            if (decision) {
+              classifier.addDocument(tweets[i].content, decision);
+              classifier.train();
+            }
+
+            classifier.save("classifier.json", function(err, classifier) {
+              if (err) console.log(err);
+            });
+
+            getResult();
+          });
+          if (i === tweets.length) {
+            process.exit();
+          }
+        })();
+      }
+
+    }
   });
-});
-  
 });
