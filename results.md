@@ -1,698 +1,602 @@
 Text | Label
 ------|------
-''Was gonna wait to go to Central Park for when I proposed to my future wife but shit sometimes things change... | negative
-I want a new phone case. | negative
-RT @MakeupbyMandy24: Uh oh...I think my computer thinks I'm on California time! Gotta fix this ❤️ | negative
-RT @KidDooley: If u can make a girl laugh u already half way there b | negative
-RT @ArmyOfCraic: I'm helping smaller accounts gain 1000+ followers! RT this, follow me and i'll shout you out and follow back x ❤️💗 http://… | negative
-"Some creepy ass guy kept taking pictures of me last night, I was so scared!!" -@haleystaples96, it was the photographer you dumbass | negative
-@Haikal_Amran i hv no idea, saw the pic online haha | positive
-“@DjibyZulu: Eagle Eye love that movie” | positive
-Alacranes Musical 💘 ^^^ 
-Right Now 👌🙋 | positive
-RT @FlTNESS247: Christina lost over 100 pounds with this proven Miracle Pill seen on the Dr Oz show  http://t.co/skMqZlQExO http://t.co/0GK… | positive
-@The_Real_Essy @ANerdsThoughts  Let me know when you are ready for testing. If necessary, I can try to help with getting forge to work. | positive
-RT @selenasbenzo: love of my life http://t.co/pmxxoXio6o | positive
-RT @VOASUDANINFOCUS: South Sudan Hopeful of Improved Peace Talks With Rebels http://t.co/6tcUbqxVPB | positive
-Always strive for #excellence in all that you do!! #positiveliving #positivity #keepmovingforward http://t.co/XJVRtLNCoY | negative
-@MissKelseyH My friend @mazegarfield is not online here, but she loves you very much! Follows her, PLEASE. #Kelseyfollowspree ♥♥ ll | positive
-RT @newmusictoday: We Bumpin' Tony Toni Tone - Feels Good http://t.co/UrmtPbuxZu http://t.co/uWJ7vmkUXX #hiphop #djkingassassin | negative
-Come on, let me have it! Knock me down! Destroy me again... | negative
-#throwback #selfie with buddy .. FITRI (my face a bit fattening back there) http://t.co/JAkIprBtnu | positive
-RT @IntoTheAbyssx: when you realise you have school tomorrow http://t.co/Kxe5WmJr5q | negative
-RT @FILAUSA: RT @ComplexSneakers: The Fila "Orange" pack will make you wish you were in South Beach http://t.co/8m5Ya89E1f | positive
-fuck. | negative
-I posted a new photo to Facebook http://t.co/vaafmUAUK9 | positive
-RT @HeelPornx: heels in my favorite color. purple. ~~ http://t.co/ye4nggdqN6 | negative
-RT @Real_Liam_Payne: @scott_mills oh my god i cant even!!!! .... BAMBOLEOO BAMBOLEOOOOO #liamsholidaydiary http://t.co/SqPgQbdfGd | negative
-@drasticjustin rt this pls https://t.co/P4BO50BQpM | negative
-I found Keeper’s Cloak in The Tribez &amp; Castlez for #Android. http://t.co/qeLscyVF0t #androidgames,#gameinsight | positive
-LOL Doctor and Jack | negative
-Really need to sort a few things out! Might even write a list! :o | negative
-This #Print_Ad by #TBWA promotes its client's brand as it promotes the Agency #BrandScience http://t.co/JN9ahbmYtk #IMCWF | positive
-Girls ending sentences with "omg" is hilarious idk why. | negative
-RT @CommissionPNC: TORONTO!!! the good folks over at @hennypalooza are bringing the party to you in JUNE #HennyPaloozaToronto http://t.co/E… | negative
-"@hayleycoxx_: “@J0rdan_sulliv4n: @hayleycoxx_ you made a spelling error” where?😂👀" in the tweet you was writing behind | negative
-@george385 Watching crap adverts with bits of Bond film in between. | positive
-Is Mass Effect being re-released for next gen consoles? http://t.co/K5ZhuuAgiI | positive
-Was going to read but then FREAKY FRIDAY | negative
-Sundays are so damn boring 😠 | negative
-Social networks make your friends your enemies ... | positive
-I'll sleeeeep. | positive
-@EimanSal @EkPaheli_ @Miqbalkhan @TeamMiqbalkhan yesss please doooooooo | negative
-love forever love is free | positive
-Don't feel like doing anything today ✌️ | negative
-RT @IRWlNSMIRACLE: WHAT THE FUCK BEFORE I TURNED FILIPINO I HAD 28.5K NOW IM ABOUT TO HIT 29K | negative
-RT @CesarAzpi: Superb victory! This team never gives up and with your support we're even stronger! We need you on Wednesday! #KTBFFH http:/… | positive
-After the Fact: Daring Don't: http://t.co/U9MMuewg3E via @YouTube | positive
-@eldannyibarra no you said I was the best 😏 | negative
-@peoplescrtic I mean that extended tape was just overwhelming... | negative
-RT @NiamsHorse: $ FOLLOW TRICK $ 
-$ RT to gain
-$ FOLLOW ME @marvelnixll @liamftjc AND @punknxrry_
-$ FOLLOW EVERYONE who rts
-$ GAIN
-
-#4Music… | negative
-How A Startup Helps Employees Speak Their Minds Without Fear Of Getting Fired by @lydiabreakfast http://t.co/3tXLr1K7g9 | positive
-@chase_clark11 where u at | negative
-@kenziebachmann wish I could😔 | negative
-RT @caitlynvanbeckx: Not even trying to ignore this. http://t.co/ImPjbbYXxV | negative
-RT @FoodPornsx: Cocktail Cubes http://t.co/WMw1b6NPsI | negative
-@Kellerweis I will! | positive
-RT @bizzlestunna: TWEET #BizzlestunnaTo50K  I WILL FOLLOW A RANDOM 100 BELIEBERS IN MY MAIN ACCOUNT THAT TWEET THIS FOR 100 TIMES | negative
-Lmao ALL ME http://t.co/l6ciwWD7q5 | positive
-@hillsongunited  Hope to see you on June 11 ❤️ | positive
-chilled dayy :) | negative
-Everything is happening so fast. | negative
-RT @TotalManCandy: Romeo Beckham is only 11 and he's still hotter than most of the guys at my school... http://t.co/9MPVI95Lh4 | positive
-@MissKelseyH hey dolly girl! Follow me please! #kelseyfollowspree | negative
-RT @Beauty_OMG: you are drinking cough syrup,basically you're breaking down your immune system and are prone to catch anything | negative
-󾠣 Selfie Sunday !! #Tgfad ❤ | negative
-People on snapchat probably think I'm some crazy cat lady. And it's only because...I AM 😺😸😻😽😼🙀😿😹😾👹  #cats | positive
-RT @FaithfulGf13: My biggest fear in life is having my period on my wedding day. | negative
-RT @ARTU_Knights: BASE: WOW a laser of a HR from Brackenridge continues his hot play! Now a 2B, HR today, 3B yesterday. #BrackAttack http:/… | positive
-@muhree_ rather be the best of the west than in the sorry ass east #thunderup ⚡⚡⚡⚡⚡ | negative
-RT @BlacklistedNews: Phone Company Bid to Keep Data From N.S.A. Is Rejected http://t.co/6wsi0uoDoI | negative
-RT @TpMgSkJmNs: @MissKelseyH will you please follow me? #Kelseyfollowspree | negative
-RT @_FameCA: I want to be someone’s favorite person to talk to. | negative
-RT @SheswantstheD: I laughed way too hard http://t.co/SeaXvjoCn3 | negative
-Holy Chicago I am tired | negative
-RT @HuskersBob: @michellemalkin @WayneDupreeShow As a former school board Pres, I can promise you #CommonCore is worse to Ed than OCare is … | negative
-RT @NutMagnificent: RT If you love and trust in GOD 
-😊😇😊😇😊
-😇😊😇😊
-😇😊😇😊
-😇😊😇😊💙
-👌😊💙🙏😇👌😊💙
-😊💙🙏😇👌😊💙
-💙🙏😇👌😊💙
-🙏😇👌😊💙
-😇👌😊💙
-👌😊💙
-😊💙
-💙
-
-He saw you scroll | positive
-RT @Louis_Tomlinson: Gutted :( Reading have been poor! Surely we deserve a bit of luck now !! | negative
-RT @MahoganyLOX: aw thank ya 💕 rt “@myespinosas: I want to take a selfie with mahogany she's so adorable” | negative
-@SandraFluke I had a dream last night that you won. Hoping I'm a psychic! | positive
-sunday fundayyyyyy | negative
-I would like to tell you about lee , please guys !  pleaseeee @MrDuncanJames @simonwebbe1 | negative
-Matt is so popular | negative
-Think i'm gona take a sebatical from facebook | positive
-I loooove me some retail therapy 😍👗💍 | negative
-RT @thisisTomRiley: I just asked this cab driver to take me north but apparently he doesn’t go that way. http://t.co/qRHvyJhAkJ | negative
-RT @daaae_: “@ulikeilove_: fxck around and pretend I never met you, I swear to god 💯👌” | negative
-RT @lyla_belle2: #melisa this girl is just amazing ♥ @swe_girl @PornPica @sofia13_sketube @xoAmelieX @18__PHOTOS__18 @MelisaMendini http://… | negative
-@peterzendran that seems uncalled for, he hasn't called you an asshole on his twitter.  
-yet. | negative
-It's nice outhere | positive
-@WhtChuMean How do I apply? | negative
-RT @ArmyOfCraic: RT &amp; follow me for a dm to liam &lt;3 http://t.co/r7DcMSlfjy | negative
-RT @TonnDon_: Prom Night Gotta Be Something Like Last Night....😂😈💯 | positive
-Atkins Low Carb Diet: Phase 2 Guidelines for Ongoing Weight Loss      http://t.co/GBXxggd5Vv  | positive
-@CarlosI402 @CrisCavillo favoriting is not an answer | negative
-RT @Aylanh: ☯Gain Followers ☯RT This
-☯MUST FOLLOW ME I FOLLOW BACK
-☯Follow everyone who rts
-☯Gain
-  #Love #FOLLOWBACK #gameinsight -nn7 | negative
-RT @Shaterlyx0: Not taking no risks, I need to pass. http://t.co/XwLnKdtipb | negative
-Birthday night ☺️☺️ http://t.co/QqJxnn956V | positive
-New high quality iPad version out NOW! Play on Android too! #ReignD http://t.co/9zRbbZkjeg 
- http://t.co/FTqDEcpcvm http://t.co/3GBJsM8ZdE | positive
-RT @ThatBoyDantee: I want years 😍👫🔐 | negative
-“@GaryyBeesonn: @PaulBeeson91 LOOOOOOL http://t.co/DrPR1fL7ej” that is the one!! #RKO | negative
-You meant to help me :( | negative
-RT @NateGuildea: Who would have thought we'd be 2 points clear at the top and still devastated, what a job Brendan Rodgers has done. | negative
-Texas Plant Explosion Leaves 7 Injured - NBC 5 Dallas-Fort Worth http://t.co/b4eqC4KbrS #FortWorth | positive
-Allergies. WHY. 😩 | positive
-@sarahwhite02 was this our holiday, | negative
-RT @ICTFC: Full time: Celtic 6-0 ICTFC. Awful. Just awful. | positive
-Listening to an odd and really creepy story... 😰 | negative
-Not saying It would be different from the rest, but your actions say it. | positive
-I've collected 10,510 gold coins! http://t.co/nYYRcEpm2g #ipad, #ipadgames, #gameinsight | positive
-jk nothing is sacred anymore can you guys get off tumblr | negative
-Eating pizza is my hobby | positive
-‘Disruption has become disrupted’: Forrester’s James McQuivey at TNW Europe Conference http://t.co/yPVwaI4uzx | positive
-I slept soooooo good last night like forever ! | negative
-i think i know yours. | positive
-RT @victoriadiaz933: saying this year flew by is such an understatement, it like jet pack turbo rocketed by | positive
-"@HairNotes: I'll take this over a party any day 👌 http://t.co/9mvAuf6Zb5" | positive
-Today stats: One follower, No unfollowers via http://t.co/ulpoMYNyab | negative
-RT @ChiMahomies: GREATEST THING IVE EVER SEEN http://t.co/Dzf7VQMZ27 | positive
-RT @AdderalIHadMe: Adderall had me like, "nah it's chill I already ate this week" | negative
-THE NEXT WEB: ‘Disruption has become disrupted’: Forrester’s James McQuivey at TNW Europe Conference http://t.co/Ru1vJjGcXo #SocialMedia | positive
-RT @amonns: who would ever *want* to go to westeros http://t.co/Whkch8OdFS | positive
-RT @FactsOfSchool: Awkward eye contact in the hallways with people you used to be close with. | negative
-@KingHarvin18 wen da next time u comin out here cuh ? | positive
-This song is so nostalgic :'( | negative
-Post-church #selfiesunday with the fiancé http://t.co/HRIVib7L6p | positive
-just got this fucking phone &amp; the bitch cracked up already | positive
-I wanna do something today | negative
-@kieranlemon Happy Birthday :) Eat as much cake as you can :) | negative
-@b_rosh27 @LUBowling23 Brooke wins | negative
-These refs are trash. | negative
-A recurring issue about finding time for your own needs may re... More for Libra http://t.co/bQikygJqAR | positive
-RT @_urbanluxury: EOCT &amp; practice tomorrow😐😭😩 | negative
-"If" I had the chance. | negative
-RT @_NoFucksGiven__: "@DeasiaShakur: People that's all talk👄 annoy me😒. Live up to your word. If you say you're going to do something 💁👊, t… | positive
-RT @tbhpajamakid: When a skinny girl complains about being fat http://t.co/VpP3oMxIxa | negative
-RT @taylorlonny: Sundays like this when I wish it was football season 😩😞😒 | negative
-RT @DreamHouseX: RT if you wish this was your backyard! , -&gt; http://t.co/nLzrNYwlKL | negative
-RT @RuPaulsDragRace Listen to every #DragRace #LipsyncForYourLife song on this sickening @Spotify playlist! - http://t.co/jEjr1p1Fjn | negative
-RT @cursedbythegods: 'what if nico will die in blood of olym---' 'what if one of percabeth will die in blood of olym---'
-'what if---' http:… | negative
-Today stats: One follower, No unfollowers via http://t.co/xN12sSJ0r1 | negative
-LIAM HAVE BEEN TAKING TOO MUCH SELFIES LATELY GOD BLESS http://t.co/ZiDhZjxl8d | negative
-RT @UMGOnIine: We will have Prime tournaments for PlayStation as well as EU this week!  
-http://t.co/b08iduHVNl | positive
-@Jennsnoyl jenremember that episode of friends where London happened and huge toblerone bar and ross's wedding http://t.co/nidXV4nxr0 | positive
-It's not what you do once in a while; it's what you do day in and day out that makes the difference. - Jenny Craig | positive
-RT @DuckDynastyAE Hey, Jack! It's Uncle Si's #DuckDynasty #HappyHappyHappyBirthday @DuckDynastyAE @AETV - http://t.co/aSxl2QSWGJ | negative
-Great day @FoDmtb cheers to @Flyupdownhill for the super fast non stop shuttling! http://t.co/g3QMudMqly | positive
-My dude http://t.co/MLzpyV2Dzu | negative
-RT @RuPaulsDragRace Listen to every #DragRace #LipsyncForYourLife song on this sickening @Spotify playlist! - http://t.co/7InQK6AWwO | negative
-@spu3 are you in MN? | negative
-RT @RaquelRaqu34: ☯Gain Followers ☯RT This
-☯MUST FOLLOW ME I FOLLOW BACK
-☯Follow everyone who rts
-☯Gain
-  #TEAMFOLLOWBACK #BELIEBER 6=4z | negative
-RT @Brit_Probs: Snapchat best friends can get people in trouble hahaha | positive
-@JudgeTread so sync it to PC but don’t restore the old version? Sorry to be a ballache but I don’t understand this stuff | positive
-RT @KatieFleming_: Don't have a clue what I'm doing for my art exam tomorrow, just going to make it up as I go along | negative
-RT @nuteIla: Idk what's scarier.. her protruding hip bones or the fact that this is people's idea of perfection http://t.co/zsWOC0nuHy | negative
-RT @pcgamer: Durante has modded Dark Souls 2 to support custom textures, downsampling and more. http://t.co/4vthYapXP3 http://t.co/whzG0xlV… | negative
-I posted a new photo to Facebook http://t.co/rHM5M9VuV8 | positive
-i want my own calum hood | positive
-RT @LindsayNoble14: Such a productive weekend | negative
-@RapAboutCereal you gonna step up in there like #YEETItOff http://t.co/cCI0pN6TnP | positive
-RT @shailenewoodley: Nudity looks awesome on you. | positive
-Yep its gna storm soon, my ankle is starting to hurt :-( love #springtime #ThunderStorms though.. #love&amp;hate #Relationship lol | negative
-So much love for this guy 😘💙 http://t.co/Z2YAR4FtXu | positive
-I'm so fucking stupid at times ahaha | negative
-RT @JohnBishop100: Chelsea's brand of horrible football helped only by the weakest referee display I have seen in years - it's not over yet! | negative
-How are you? — i'm fine thank you hahahahah http://t.co/xCo1PpgdaB | negative
-@HemmoxStylesx must be something wrong with twitter 😭😭 | negative
-RT @jhbenespana: How could anyone think that 23 mil people like to be ruled by a murderous president? #Clock_Massacre @OborneTweets http://… | positive
-RT @NOT_MOTD: Mourinho walking up to Sturridge like.. http://t.co/eGEUvjxJry | negative
-You looking for love in all the wrong places no fine girls just ugly faces | positive
-@TomDolman3 7th mate | negative
-@BodyofBreen why are you? Scenography is important, even in rock music. 
-In theatre many mountains you see are fake, not made of real stone | positive
-RT @JHughes239: Immokalee fl was dumb swole last night | negative
-RT @Iovesneakers: RT if you would wear these! 😍🔥💸 http://t.co/fmdt4ipYT8 | positive
-@espn Its amazing how people will make a kids dream come true! | positive
-"Yes I know how to get to campus" 5 minutes later "I'm lost..." Gotta love my mom | positive
-RT @Cuddling_Naked: I deserve to be happy, fuck the bullshit. | negative
-@DreamChasingMoe wassup | negative
-I just liked this Tumblr post from: indianatractorboy http://t.co/JOHLDiFH03 | positive
-@jesscer_atops I am! | negative
-RT @TIME: Lost Atari game cartridges unearthed in New Mexico http://t.co/rG5fwK2ZlU | positive
-@kairbear_1991 @KieranRobb91 ah, they're not even in our league but I am always nice to the lower league clubs.. | negative
-RT @NiallSuitAndTie: OMFG THE FEELS MAN!!! http://t.co/LQzrQ3toCP | negative
-RT @sierrleone: Everyone should be happy and watch conspiracy documentaries 💆 | negative
-I wish they did revision guides for at least one of my subjects but there isn't one for any??? WHY | negative
-Someone tell me how to get Paulina back as a bestie | negative
-GoodMorning ☁☀👋👋 @TheyLoveChar__ | negative
-@ProSyndicate You Probably Wont Respond, But Whens the next time your streaming? | negative
-RT @RealTumbIrPosts: I act like I don't care, but inside, I care more than you can ever think. | negative
-RT @ChiIIVlbes: G ☯ ☯ D   V I B E S. | negative
-RT @fvckvince: i'm either too shy or too straightforward | negative
-U ain't that gr8 | negative
-Let's follow each other. Haha RT  
-#PUTANGINAFOLLOWPARTY | negative
-RT @SteveStfler: Bad decisions make good stories | negative
-RT @thedailyhumors: Damnnnnn girrrrrrrrl are you a fire detector? Cause you're really loud and annoying. | negative
-@nzurku that's amazing I wish I could have been there for the fleury chants | negative
-RT @dontaeMarcellis: “@ChynaDanyaii: @dontaeMarcellis ain't itttt!!! They really do 👌” whole movie i was like hex nah bruh i wouldnt have j… | positive
-RT @103brooke: If the truth don't make you leave... Then don't be mad at the lies... | negative
-RT @KARis_Nich0LE: Workin then out w my babayyyyy | negative
-Follow me @DSavage__  👌😈 #TrillTweet http://t.co/9jW71u4OVI | negative
-I love you panera. | positive
-RT @NewFoxNewsTV: SHOCKING PHOTOS OF SOUTH KOREA FERRY (On Pic #1) 😱😱 http://t.co/TTx4Bi2EOu | negative
-RT @kbock2241: Suarez is really good...at diving #chelseavliverpool | negative
-I've harvested 840 of food! http://t.co/UCSQSC8orT #android, #androidgames, #gameinsight | negative
-no one can hit them high ass notes like ari 🙌 | negative
-@trizzlwhore14 me too lol | negative
-RT @yutayokoyama96: I love thrifting haha | negative
-RT @thechicoazul: So there we have it, one of the names in the three envelopes was Steven Gerrard. | negative
-Black cum spewing into white sista’s mouth http://t.co/DlHyKXHOPi | positive
-RT @girlposts: Me when driving https://t.co/7RQ6Jh5E08 | negative
-RT @horseshitlarry: i love it when liam's smile reaches his eyes bc he looks so cute like a cookie but still manages to look hot as fuck ho… | positive
-RT @Fact: No matter how strong of a person you are, there’s always someone who can make you weak. | negative
-RT @mitziiic: I'll be the quick relief to all your stressinnnn | negative
-With my dudes at the beach #beachin http://t.co/mwksDI4K64 | positive
-Just noticed 4k lol http://t.co/Mca8P58Gzv | negative
-@antiapsy my goal is to #exposetheterrafags | negative
-@__LilDashhh lls good afternoon to u too | negative
-Photo by http://t.co/p61wDOeUgL http://t.co/yeYLPeiQgR | positive
-RT @PhantomGoal: Some Liverpool fans actually calling me a 'grass' for calling out a racist. Fuck off, you racist fucking gobshites. Stain … | negative
-RT @Nohble: #Sneakpeak 🔥🔥🔥 May 3rd 🔥🔥🔥 #sneakers #sneakerhead #streetwear #streetfashion #fashion #nike #jordan… http://t.co/zxbBU5nEuB | negative
-Eat* lol | negative
-Kayaks pro going-out-of-business sale - buying gratuity because beat hollow paragon: bpItgJ | negative
-RT @YoeBoy_LACEDUP: Who's 14-19 and don't have a baby ? 👶🙅 | negative
-RT @MaitlynnLove: "@vvrecked: HAHAHA WHAT DID I DO http://t.co/A9llbfGYQ2" | negative
-@TorreySmithWR @QadryIsmail At first glance tho....... | positive
-Women's Health Conversation Network is out! http://t.co/GX6xFK5SSE Stories via @HamCoHealth @Wellcast | positive
-RT @GabrielaGabr56: ☯Gain Followers ☯RT This
-☯MUST FOLLOW ME I FOLLOW BACK
-☯Follow everyone who rts
-☯Gain
-  #BELIEBER #RETWEET #ipad #Love … | negative
-RT @estepanyah: Putangina is a magical filipino word that can be a curse word, verb, adjective, noun, an expression of love or dismay or an… | positive
-#GG3rdJPNTOUR ❤❤ #LIAMYOUDESERVEALLOFTHIS #4MusicLFSBeliebers #iwillsing http://t.co/U7NqpWbjNx .. "👌👇👇💋😘💘 http://t.co/v5pZVdcOC4” | positive
-@shslpatissier Is Je ne sais pas the name of the cafe? I never heard of it before, but I'll look it up!:)) what time works best? | positive
-Stats for the day have arrived. 2 new unfollowers. Stats via http://t.co/LjxmOMj5xu. | positive
-I'm going crazy | negative
-RT @NYRangers: #NYR Fan @SusanSarandon supporting the Blueshirts @TheGarden today! #NYRPlayoffs http://t.co/hFwDa8GKm4 | positive
-Two Indian guards shot dead in Kuwait robbery attack - Times of India: Two Indian guards shot dead in Kuwait r... http://t.co/DIGPMylUI7 | positive
-“@girlposts: Me when driving https://t.co/2TrUxvpOPe” Kroger... @MadisonDawson03 | negative
-RT @sportswithjohn: Also it's fun to support a club whose trophies weren't literally bought with the blood of Russian peasants. | negative
-we literally just got on mutual but u are really cool — if ur one of my recents then i wanted to follow u for a ... http://t.co/J8ipu3M7l3 | positive
-“@PNiles03: Celebrated a big @MN_Wind_Chill win last night by drinking a Saga IPA by @summitbeer.  Delicious!” | positive
-RT @alexsblowers: And here we welcome the tidal wave of moaning Liverpool fans.... | negative
-🙌🙌🙏 “@ms_rubykisses: Where they at I need a list please RT @Mr__Harlem: What do u women think about a man over 25 without kids?” | negative
-RT @BestLyricsSwift: "Learn from yesterday." - Taylor Swift | negative
-I Neeeeeed Another TAT  😭😭😭😭 | negative
-My brain isn't working | negative
-What's up Twitter friends? btw my #giveaway https://t.co/iF88wKmGJv | positive
-Feel so bad for Gerrard | positive
-this fic is horribly beautiful T A T omg | negative
-@naeuncx im good and you? | negative
-Mad ass hell cause he was,a waste of time | positive
-RT @Pirates: Here's some nuggets about today. #LetsGoBucs http://t.co/9DnfHd5iD2 | negative
-RT @chloesmetalkiss: I need these trousers from etsy so badly http://t.co/XE5pgnVfSA | negative
-RT @BestTextMsgs: I will wait for you because honestly I don't want anyone else. | positive
-RT @AmigoInked: Not Taking That Risk😳🚫👶 http://t.co/8nUfo7mdlF | negative
-RT @NEKansasKDOT: A #Tornado Watch has been issued for Johnson County, KS until 7PM #kswx #jocowx  @SWJOCOCERT | negative
-Why Did Fundamentalist Christians Let Their 12-Year-Old Daughter Die?: “Defense attorneys for Travis... http://t.co/tLFRewPYAD Please RT | positive
-RT @RaniaKhalek: Well this is awkward http://t.co/I0lq8FIDdK | negative
-I just adore every little thing about Richie, I love our relationship 😊👫💋 | positive
-@MycialAllen @broseph_am it's still up there ? | negative
-wonderingaboutfandoms: letyourjourneystart: According to chemistry, alcohol IS a solution. http://t.co/O07SC2i6eI | positive
-RT @LawTooRaw: "Don't bring niggers to my game" http://t.co/RFOqobOqkD | positive
-Eggs with asparagus, kale, green pepper and Gorgonzola blue cheese! It's the bomb! #food #imhungry #eggs #bluec... http://t.co/vT5h4vN1yk | negative
-my current view. http://t.co/AkGAAFaOCg | positive
-“@SaluteMeStylish: @Miss_Micaella Im COMING OVER ! I wanna spend the day with you so badly I have to text you !” Yay!!! Come through | negative
-You gotta have faith and endurance to finish this race ! | negative
-We all got the same 24 hours. | negative
-RT @WozowskiSays: When I have money = nothing to buy. When I don't have money = I want everything. | negative
-@bethyjordan id refuse to go | negative
-are cookies for breakfast acceptable? | negative
-RT @UberAFC: Just your average game of Mario Kart? http://t.co/210U9xmhk1 | positive
-My boyfriend is the only boy my mom liked but thats good😌👌 | negative
-Only 23 WANT https://t.co/DlPfNFRuaT | negative
-@SameelDar @FootballFunnys @Usman_K93 he was a jammy cunt like YOU! #jammytwins | negative
-“@Lucy_Royce: Quote this with your favorite emoji.” 💁😏 | negative
-RT @SpongebobMemory: I was born with glass bones and paper skin. Every morning I break my legs, and every afternoon I break my arms http://… | negative
-RT @KUDUNEWS: Who Does This: Teenager Stabbed To Death At School Because Of Prom Choice! - #celebrities #gossip #kudunews http://t.co/TLMwp… | negative
-RT @LifeProAdvices: Where you can smoke weed legally... http://t.co/hzB36ip8De | negative
-Big Thx for @CISCbdgTELKOM @CISCbandung nobarnya PECAAAAAAHHHH abiiissss... #OneDayWithCISCBandung | negative
-Once Bitten, Forever Happy in India http://t.co/eRBQOUGA7G via @wesaidgotravel | positive
-RT @JasmineeRod: When life gives you lemons  Squeeze them in people's eyes🍋👀 | negative
-Can't wait to get back out on the diamond | positive
-Watch Nigerian Know It All Girl http://t.co/DLRkNRRWaM @jiroworld @KevweOgunje #NigerianKnowItAllGirl | positive
-@ohyesclifford youre cool too bc your learning our language hahaha 💕 thats cute | positive
-RT @YeenFucknWitMe: I'm finna turn up this summer..  Yal just wait on it | negative
-RT @TFBTWEETDJ: #TNM #MusicFAM HOT NEWS: Lil Durk Disses Tyga In Preview Of New "Chi-Raq" Remix: Lil Durk uploads... http://t.co/KaXn4xgDEV… | negative
-RT @twd_fan_page: RT for the show Fav for the comics http://t.co/rsyodg04EG | positive
-@SeanAllen1990 yeah I'm in the West Midlands and I would love to ride you sissy ass | positive
-RT @flywithmarano: Holy god, is that an angel?😍 http://t.co/t6VBpIVUqq | negative
-RT @loveshawnmendes: IM SO DONE http://t.co/BHLTW7AvxO | negative
-I've shared 70 memories with my friends on #Path - see them now at http://t.co/z80rerCV5b! #thepersonalnetwork http://t.co/x7IbtDbJ4w | positive
-how the fuck did a 11.7k account find my timeline sound vine tweet | negative
-RT @liljsean_: Been on the grind so long, i feel like a skateboarder | negative
-@SundayBakeClub no, Thank you 😘 | positive
-@stevey_wpl playing the odds | positive
-RT @Mr_Carterr: Something about you is so damn addicting. | negative
-This heart belongs to you Jesus!~ | negative
-Jarvis frustrated by Baggies defeat: Matt Jarvis was extremely disappointed to come away from the Hawthorns wi... http://t.co/UWNtLvRUdi | positive
-RT @ChiIIVlbes: Be thankful, you're blessed. Life is too short to be so stressed. | negative
-I posted a new photo to Facebook http://t.co/V4qn5bjt3K | positive
-A goal without a plan is just a wish. | negative
-@RealPaigeDavisAre u sure that 44 is the correct number? | negative
-You will #download #Petra #Nemcova , #resolution is 1920×1200 . #thanks http://t.co/MNjU2uvkb0 | positive
-RT @hilarioustruth: Imagine if instead of seeing these, you actually saw what the person was typing instead &amp; what they delete 😏😏 http://t.… | positive
-@_RunDolo13 boy that's before your time lol | positive
-RT @lauren_ellliott: Nothing makes me happier than tanning 😎☀️ | negative
-Homeopathic Treatment For Ear Ringing http://t.co/fc3Yzw4YVN | positive
-RT @romanos_cheese: I wanna do you like Michael, i wanna kiss you like Prince, lets get it on like Marvin Gay! | negative
-RT @McNeezysosa: 😳😳“@HotNewHipHop: .@LilDurk_ disses @Tyga in a preview of his upcoming "Chi-Raq" remix http://t.co/J8K6GbiqLe RT!” | negative
-RT @kittyhuix: make me your priority | negative
-RT @justinbieber: Was gonna wait to go to Central Park for when I proposed to my future wife but shit sometimes things… http://t.co/FCQOlDX… | negative
-@IncredibleMorg happy birthday! ❤️❤️ | negative
-RT @justinbieber: Big things happening... | negative
-@Qhtkams Yes Marss x | negative
-RT @Troll__Football: What really happened http://t.co/VkduLNbxvX | negative
-When you study thinking-this is not enough! feed me more information! because #passion_means_physics #Bcurious | negative
-@AndyP_LFC @keirnannn you said that about me Andy but I've been going since I was 3😂 | negative
-RT @datkidphelipe: she must not know that she looks more stupid than him http://t.co/hgYn7ii4Am | positive
-@Ballout__2x 😂😂😂 don't cry dave | negative
-thank you very very very very very very much! :') | negative
-@Trevor_Kerr hair cut | negative
-RT @1DLittleSecret: The boys have said "we'll be together as long as fans want us" Well I don't plan on going anywhere so... You're staying. | positive
-I posted a new photo to Facebook http://t.co/IQYbF5dty9 | positive
-lol I gave some ppl Rachel Tice 🌚 | negative
-Stupid old bitch arguing with me. I should of punched ger fat ass! Im still mad😑😑😑 | positive
-RT @sixteenthcxndle: *see's cute person* me: i wonder what music they listen to?
-others: what's their name?
-
-*****stolen***** | negative
-RT @RatedR_Rome: This summer about to be too live | negative
-It's SUNDAY!! You know where I will be at @swigbar  in SAN FRANCISCO!! Bring your guitar! See you guys!!! #live #show #bluesjam | positive
-I feel like i missed something | negative
-RT @intxn_: Got no time for people who try and find the negative in everything 🙌 | positive
-@Trans_Viral Hey thanks for the follow! | negative
-RT @leesh356: There's no motorcycle emoji I'm so disappointed | negative
-@feufeu15 When Miley goes on stage etc. For ex my arena's name is Rogers Arena their twitter name is @RogersArena so find yours &amp; follow :) | negative
-RT @ThattCodyGuy: I dare you to kiss me. | negative
-RT @thebizlocal: To enter our superb #comp to #win £50 in Marks &amp; Spencer #Vouchers just RT us and follow. #Goodluck!! Ends soon | negative
-"@TrefoefiveBABY: OMW 2 CHURCH W.MY RIGHT HAND MAN" Pray for me | negative
-RT @Quizz_SB: Everything Lit Everything a Go | negative
-RT @misslucyzara: Guy catch me live at 10pm @PlayboyTVChat sky 902 I'll be in the office waiting for you!! Xx http://t.co/GvvWOUJ4KW | positive
-Yet is the picturing with respect to saloon classifieds long-lost?: qLNpoFaqE http://t.co/Uw1voQPT8N | positive
-RT @Mikelanne_: "@laurenbrazilian: It's so fun hanging out with people who always play on their phone" | positive
-Job Available: GE PACS Administrator in Atlanta, GA http://t.co/oPJuWl8Km9 #job | positive
-@xdamncam youre one out of two. who's the other?😂 | negative
-RT @BloxwichWolf: Stay classy Liverpool fans 😞 http://t.co/MjZR7an0c5 | positive
-Fuck My Twitter Be Doing Just Following Folks. Boy Stop | negative
-RT @evaristoisallin: Haaa lying fuck | negative
-RT @RocyRooh: @john Please me follow all my friends @biebrsoul  @luu_belieber01 @dailyanolivares  @iamarielaa x19 | negative
-More great choices: 10X 9W E27 Home Energy Saving Bright LED 3 x 3W Light Lamp Bulbs Cool White T16:  $29.99 (... http://t.co/SiR1Ymh87A | positive
-@Koz_98 that's smart | negative
-All of me loves all of you. | positive
-RT @McDummies: Ayyyy how's everyone today? | negative
-@leonahhdo @melalalannie_ thank you. Lmaoo | negative
-@darkmre Thank you! :) | negative
-Even though yesterday was dry af it was still Geeked up lls | negative
-Medellin, but doesn't the 'before shot' remind you of many a Scottish town's high street:  http://t.co/HPW0yv2tqq | positive
-not that important anymore. dont even have to tell me to know | positive
-Found the best parking today. You know what that means? It's gonna be empty af 😒 | positive
-#linux #kernel  [PATCH -V1 16/22] richacl: Check if an acl is equivalent to a file mode http://t.co/XENjWjnYLi #lkml | negative
-@prischrimentel you're Chris Pimentel from Vine. We will never measure up to you. | positive
-@disturbin_ya being | negative
-Lake Bell Puts Baby Bump on Display at American Comedy Awards: Picture http://t.co/YDR0QXPjOs | positive
-I posted a new photo to Facebook http://t.co/8uLIJtnSIq | positive
-RT @ActorTrivia: Princess Leia is now a Disney Princess http://t.co/beIaWc6NUE | negative
-@__TrulyDOPE lmao they under da same brach | negative
-@KateKelleher_ u kno nothing | negative
-Dear Shooting star, i hope my feelings will reach Naoki Irie. | positive
-#6: Twisted Sista Curl Activator 3.38 oz. (Pack of 2) http://t.co/2B2GJc9TYJ Twisted Sista Curl Activator 3.38... http://t.co/vJHdAfMc8h | positive
-I liked a @YouTube video from @despo_upnext http://t.co/0luX8Mv3jp ThatGuyLewiee - Metacognition Pt.1 | positive
-I added a video to a @YouTube playlist http://t.co/MNfqoAc0FP Skate 3 Clip | negative
-RT @hitfollowmerj: #RETWEET THIS! FOLLOW #ME AND EVERYONE ELSE WHO #RETWEETS THIS TO #GAIN 134+ NEW FOLLOWERS! #TeamFollowBack #TheGainNati… | negative
-RT @Sexwithskip_: @danielsahyounie If this gets 200+ RTs can you be mine my 1/5 ? Love you so much xx | positive
-Best part about PSU is the midevil festival on spring weekend | negative
-Best shower of my life 😍😍 | negative
-RT @scooterbraun: Less than #12HoursUntilProblem by @ArianaGrande | negative
-RT @izayinegirl: FOLLOW TRICK 
-$ RT
-$ follow me, @__horan_hug__, @thebritvamps, @sexwithliam__ &amp; @liamdinchx
-&amp; all who rts
-$ gain
-
-#4MusicL… | negative
-RT @NewFoxNewsTV: SHOCKING PHOTOS OF SOUTH KOREA FERRY (On Pic #1) 😱😱 http://t.co/TTx4Bi2EOu | negative
-“@_ThatRicanKid: @mtoxic_ @Piehoela @euphoric_xo @demonindenim we being serious rn ✋” :( | negative
-RT @Tahtianaaa: Class Of 2K14 &amp; 2K15 Will Be The Last Classes That Matter 👏👏👏😂 | positive
-RT @GB_FollowBack: 🔥  Retweet if you Follow Back 🔥 | negative
-RT @TpMgSkJmNs: @MissKelseyH PLEASE #Kelseyfollowspree | negative
-RT @Dandiya831: ☯Gain Followers ☯RT This
-☯MUST FOLLOW ME I FOLLOW BACK
-☯Follow everyone who rts
-☯Gain
-  #androidgames #FOLLOWBACK luql | negative
-Sometimes I get nervous when I see an open door. | negative
-RT @additionarry: "you are what you eat"  
-well i don’t remember eating a girl who sat on her laptop all day fangirling about boyband membe… | negative
-Gonna cook Meredith up a nice steak tonight for her bday | positive
-RT @AlmightyDuce: I'm loyal to the wrong people. | negative
-RT @iamelijahj: don't retweet this | negative
-RT @ilynikkibella: @armlocked love the new update :) | positive
-RT @NiallOfficial: We are a family! we stick together forever! Love you all ! Best fans on the planet | negative
-RT @realradikaa: A blessing of a husband thks to god and all well wishers. http://t.co/3UrsgXpH0e | negative
-RT @MIXSHOWBLAST: We Bumpin' Tony Toni Tone - Feels Good http://t.co/gcCQweIi1m http://t.co/BpkKamM30H #hiphop #djkingassassin | negative
-RT @PupsPorn: Corgi, cuddling with a toy. #naptime : ) http://t.co/kNyU5F3ZRQ | negative
-RT @BleacherReport: VIDEO: Vince Carter gets his redemption for the jumper he missed in the 2001 playoffs http://t.co/P2usZBKizn http://t.c… | positive
-RT @BieberAnnual: Retweet if you want to gain just follow everyone who retweets this and follow back who ever follows you | negative
-When people complain about not having a job then get one and complain about how much they hate working http://t.co/ogqsfJiki6 | negative
-RT @CAmatty13: Carly left her uniform top at the hotel and she's about to compete So I got a key to her room and saved the day 😊 ur welcome… | positive
-RT @Contina8: ☯Gain Followers ☯RT This
-☯MUST FOLLOW ME I FOLLOW BACK
-☯Follow everyone who rts
-☯Gain
-  #ANDROID #gameinsight #ANDROID ]öz= | negative
-RT @matt_tbh: these work because it's happening http://t.co/LiWxKALYVt | negative
-@zoeilanahill1 @5SOS your not though your super skinny | positive
-If you know you're Great, it'll be almost impossible for anything/anyone to disrespect you.  | positive
-RT @justinbieber: A new song with @poobear is on my official page https://t.co/7UmOqKJkSm 
-#Hard2FaceReality | negative
-@OhIts_Trigga well I stay smoking good so when I'm free up there I'll Def hit u always lookin for a trill nigga to match up wit | negative
-RT @ChasityMarie_: I don't need someone who thinks I'm perfect.. because I'm not. I need someone who knows I'll make mistakes and still lov… | positive
-RT @THOMASuii4u: ☯Gain Followers ☯RT This
-☯MUST FOLLOW ME I FOLLOW BACK
-☯Follow everyone who rts
-☯Gain
-  #iphone #sougofollow #ANDROID rad6 | negative
-@nashtyydallass how do you know for deffo? | positive
-RT @UnusualFactPage: Listening to music at high volumes makes a person calmer, happier and more relaxed. | positive
-RT @FactsOfSchool: Awkward eye contact in the hallways with people you used to be close with. | negative
-Veronica Brazil in bed.:  
-Length: 28:12
-
-Keywords: big tits http://t.co/ZC5GCFiJu7 | negative
-I need to get my car wash hell a full detail 😒 | positive
-Violated by the Vine Voth (Bad Girls Monster Club - Monsterotica) (Kindle Edition) newly tagged "kindle" http://t.co/mCCb0hTJBM | negative
-RT @_CCCC: Get your copy of Our Song Is Grace. Songs inspired by Exodus Series. Download here: http://t.co/fXiyNKLU5O. Retweet! http://t.co… | positive
-Me: " ... Is the guy that's going to be there hot? " Justin: "In a white trash kind of way yeah" #FriendsForAReason | negative
-Angel Eyes Episode 6 Review: Lee Sang Yoon &amp; Ku Hye Sun Finally Confirm Their Love http://t.co/quPVB9q1xm | positive
-@TrishaJanessa I know you did you was fucking shit up 💃💃 | positive
-RT @LibraGirl024: Thank you for following:) @JodeeRomana @Timothy_Hughes @AverageGuyPosts @tkwyoung http://t.co/tqQgnJzXsW | negative
-Today stats: One follower, One unfollower and followed one person via http://t.co/AdMCVFOpAD | negative
-@hnicc_ if that happens ill let you have my twitter | negative
-RT @netanyahu: Whoever chooses the terrorism of Hamas does not want peace. | negative
-i'll be called 
-"the girl who speaks a different language"
-
-at school tomorrow bc http://t.co/P17EmrjTAJ
-
-Literally laughing | positive
-@danielkalala1 lol, told you Chelsea is the team 💪 | negative
-RT @jlatzz: @Twilightcards was gonna calmly explain to you how that's wrong, then saw you were an anti islamist twat and now realise logic … | positive
-means no improvement RT @OptaFranz 6-Patrick Herrmann has scored his 6th goal this season, as many as in 2012/13 and in 2011/12. Repetition. | negative
-RT @__jaliah: I pretend that I don't care but deep down inside I still really don't care. | negative
-Steffans snoring last night really impeded my sleep... And work is a huge struggle 😭 @steffen4567 | positive
-RT @RealSexNotes: If I choose you over sleep, you must be fucking special. | negative
-Young nigga move that dope | negative
-RT @bigbootyprobs: All of me loves all of you All your curves and all your edges
-All your perfect imperfections http://t.co/MLfjf6zoLI | positive
-@Eiqaenigma96 and what do you think? is difficult or not :) | positive
-RT @SemangatPositif: No matter what they say, don’t change who you are. | negative
-It's honestly sad looking back at life and realizing how much everything has changed.. | negative
-Niggah you in church the Hell you doing on twitter? | positive
-Rly don't wanna waste the last sunny evening of Easter | positive
-RT @katy_kerwin: I'd rather be hurt by the truth than be satisfied by a lie | negative
-"I cant put myself in a postion next to someone I can never even afford to have in the first place. I cant commit... http://t.co/KrnqUo0iyX | negative
-You're missing someone right now, aren't you? | positive
-Just completed a 1.77 mi walk with @RunKeeper. Check it out! http://t.co/rgWFvBaOmQ #RunKeeper | positive
-So what's the matter with you? Sing me something new ... | negative
-@JakeAshley1228 Never say never...:)  But most of it looks to be to our east.  We've dodge a bullet. | positive
-RT @fslslmn: If Monday comes any sooner the next time,I'm quitting school. Fuck school. | negative
-RT @michelleln_: #fuckgucci for getting me sick 😩😷😂@Baabeeydoll | negative
-“@NN_Brenon: Got a ride from a complete stranger tonight #nrverstranded @andrewurz4 @TheRealShaneJos” | positive
-Today stats: 2 followers, One unfollower and followed one person via http://t.co/u8hszqMHcz | negative
-RT @WhyLarryIsReal: I LOVE WHEN THEY DO THIS. so much http://t.co/L0vfju1j86 | positive
-RT @KaibiganQuotes: 3 words 2 seconds
-1 moment
-
-"THANK YOU GOD." | negative
-"I gotta feel alive, even if it kills me. Promise to always give you me, the real me." | negative
-RT @barbaraemiller: The Koch Attack on Solar Energy http://t.co/AqjJixRDvd | negative
-RT @zeonartseo: Want a fantastic seo service then you need Rank-1 http://t.co/eYZWqJfLqk #seo | positive
-RT @Loise_Gichuhi: Stop telling others about your problems. 20% don't care and the other 80% are glad you have them @Fact | positive
-@ShahrukhWazir @BillalSohail @mhassan005 Everton will win the league for Liverpool! This is my prophecy! | positive
-Folks gone have a real P down on his ass | negative
-Don't Think About It Too Much | positive
-shake shake shake shake shake shake shake shake shake shake shake shake shake shake TAMBORINE | negative
-Bout to head over to St Francis academy for the @BaltimoreHawks tryouts please get there on time | positive
-rt if ur not going to wwa 🙋 | negative
-Always got to have the bible app just in case you get caught on your phone at church.... 😂😂😂😂 | negative
-@aaronadatsi1 Lol oh so Liverpool lost? | negative
-London tomorrow! ☺️👍💞 #wewillrockyou #mammamia #wicked #theatre #london #westend #tickets #love #excited http://t.co/Xqp1Ut9cOK | positive
-She is to adorable,,, | positive
-Everyone in trini is turning up for carnival and I'm here revising 😩 | negative
-@CurlyHairAMBERR ard cool😌😌 | positive
-@jemmakeithx you were such a peer thing haha! It's okay i was just as bad😁 need another night out soon😏 | positive
-Fuck. I look disgusting. | positive
-Some new prints available at http://t.co/S3EryGiRHQ. #artforsale #art4sale #prints #illustration #artwork… http://t.co/nhcyu9zHVI | positive
-RT @ratedRricky: omg. WHERE IS THE CHILL!? idk if I should 😂😂😂 or 😩😩😩 bruhh http://t.co/BuucB5ouEr | negative
-RT @lovatoaura: Damn it my wife is perfect 😜😜😜😜 http://t.co/iEVKpws7f4 | negative
-@LILBTHEBASEDGOD #YOU #FUFU #AN #ITS #FUNK #NOW #IM #FINNA #DESTROY #WHAT S #LEFT #OF #YO #BOOBOO #ASS #CAREER | negative
-“@loyxlty_: @DeeezBunnz_   Are you not on twitter as well” I just turned around to look at you, you missed it. | positive
-RT @followback_707: : ✔ R E T W E E T - T H I S - T W E E T ✔ ✔ FOLLOW EVERYONE WHO RETWEETS ✔ ✔ FOR 100+ FOLLOWERS FAST ✔ ✔ #FollowPyramid… | negative
-RT @AndreaRussett: GOODMORNING 800k WAHOOO🎉🎊 | negative
-Enter the @Dansko Shoes #Giveaway from @89linz http://t.co/glfxI2vIHF | positive
-RT @DNAwakeup: **DNA Wake Up: A Simple Guide to DNA Activation**~ Paperback or Kindle http://t.co/8gyCwfBBb4 @DNAwakeup | negative
-"@IrfanBachdim10: Mourinho his reaction hahahah!! BIG BOSS!!!" | negative
-RT @TheSexology: Too much jealously kills the relationship. | negative
-RT @narrydimplesfav: Putangina sounds like a mixture of the word "puta" in spanish and "vagina" 😂 #PUTANGINAFOLLOWPARTY | positive
-I feel obligated to be the best at anything that I do. I will not half-ass anything. | negative
-@Polyyy_ would never known with all the b&amp;g tweets | negative
-It will grow until it blow up for all societies. The fruits of excessive Consuption... http://t.co/APCJaaaS9c | positive
-RT @Jack_Goodwin95: “@FootyHumour: "THIS DOES NOT SLIP UP!" http://t.co/mZyAsV6sUQ” @Daniel7297 | negative
-@silverado2448 I'm really looking forward to her scenes | positive
-Hecka fun last night' | positive
-There was a spider on my bed so I trapped it in a cup &amp; put it outside and threw rocks at it. #fearless | negative
-@LizziAmes watching the Parent Trap! Old one haha :) x | positive
-http://t.co/812GSGFqrZ what a tit | positive
-RT @bethmyers96: £27 well spent on Luke's top for his holiday to Maga that's guna be really fun for him ❤️💕 http://t.co/3jMuRzq9Pi | negative
-RT @lilyallen: I wasn't mocking Beyoncé , like I wasn't dissing anyone on #SHEEZUS , this is so fucking boring . | negative
-RT @Country_Words: Why are you the one I want. -Jake Owen | negative
-RT @rosepetalhxrry: I'm moving to the Philippines and learn a new language yay #PUTANGINAFOLLOWPARTY | negative
-RT @gdanial_: Without Allah. We are nothing dude. | negative
-I won't wear makeup anymore | positive
-RT @9GAG: Amazing mathematics http://t.co/PgXgzon4Il http://t.co/IbdiS3E8Pf | positive
-RT @Conandfc: Talking of slip ups, Chelsea fans http://t.co/4ZZsP5JLHk | positive
-God always brings life out of death. | negative
-RT @mzdeniseh: UP LISTENING TO MY NEW FOUND MALE VOCALIST @SongwriterTC HIS VOICE💯🎧💋🙏😍🔥🙌 | negative
-RT @MagicJohnson: Thank you Dallas and San Antonio for treating us to an amazing game. You helped take my mind off of this Donald Sterling … | negative
-@lindsay_rhea22 I actually cracked up at how dumb that is 😂😂 | negative
-Me and Danielle do the dumbest shit @pedendanielle | negative
-Bout to hit up Forbush 🍦 | negative
-I HAD NO IDEA HALF THE FANDOM WERE FILIPINO THO | negative
-Carmel popcorn. *makes a heart shape with fingers* You complete me. | negative
-"This does not slip!" Whoopsy! https://t.co/8PjHX1ldLh | negative
-RT @pip_wayne: Mf be like yeah they ops but still be rappin to them 🙅😴 | positive
-My Sunday plan is crawfish and baseball. I want a sweep.  #Braves | negative
-Severe Thunderstorm Warning for Clay, Jackson, and Platte County in MO until 12:00pm CDT. #mowx Severe... http://t.co/28KhQKEolJ | negative
-RT @Go1DenUpdates: "What is your must-have tour accessory?" http://t.co/rJeErKCLJY | negative
-RT @RalphStrangis: Lindy on Benn: "I invite any of them who think they wanna try him on to try him on - they'll come out bloodied". #game6 | positive
-you trying so hard to find the wrong in someone; therefore anything done is perceived as a negative | negative
-“@Ballout_KeKe: It's toooo many mad hoes😩💁” | negative
-RT @AnaMobbLilSteve: Charmaine Get Some Money Fo Da First Time In Years An Prasin Up To Shit To Fuckin Hard FSE😂😂😂😂 #BROKEASSLILGIRL | positive
-I honestly deserve all the shit that happens to me. | negative
-@enrique305 i hope u hve a great sunday ! both u &amp; jack ! even anna ! :) | positive
-Sleep! | negative
-@KaPoooW_LE we never added each other back lmao | negative
-RT @RolexOnMyDick: Why these pigeons look like they bout to drop the most fire album of 2014 http://t.co/1IUnclU0fk | positive
-who am i anymore http://t.co/9tvpYQhK7I | positive
-RT @_livjohnson_: @Jon_RandL @OfficialRandL TAME IMPALA &amp; MGMT | negative
-@baileymac02 #TeamBailey #BGT #TeamBailey #TeamBailey your amazing x http://t.co/Yjw2Bs4t68 | positive
-We looked hella great lol🙌😉😁 http://t.co/rmymEiJDcv | positive
-I hope it comes out worldwide asap tho #PreOrderProblemOniTunes | positive
-“@Reese32_: I'm on a strictly water diet for a week, gotta my system and liver a break” yesssss me too | negative
-Anyone wanna do anything for a while hit me up 3104370 | positive
-RT @trendinaliaAU: @ChristianAntho Did you know that #ChaseAtlanticEP was Trending Topic for 3 hours? → http://t.co/yzYncvn93q @ChaseAtlant… | positive
-Soon as I get home in getting my hair done | negative
-Communist Daughter am i right? | positive
-RT @WreckedxWrists: I'm not worth anyone's worry | negative
-RT @Kassieiop: ☯Gain Followers ☯RT This
-☯MUST FOLLOW ME I FOLLOW BACK
-☯Follow everyone who rts
-☯Gain
-  #gameinsight #gameinsight 8y[d | negative
-RT @RoSpr490: Last night was fun | negative
-RT @googleniall_: DOES ANYONE KNOWHOW TO UPLOAD VIDEOS TO TWITTER | negative
-RT @KaeJablonski: Im glad she is in my life | positive
-I've harvested 964 of food! http://t.co/D7CgQLHMkx #android, #androidgames, #gameinsight | negative
-Chilln with the kid b4 I bounce for wrk | negative
-RT @Leo_Goncalves7: “@_Fraydoe: Bruh I can't stop laughing. 😂😂😂😂😂😂😂😂😂😂 http://t.co/iVlv643mz4” hahahahahaha 😂😂😂😂😂😂😂 | negative
-RT @ripKemp_: ian arguing w/ no hoe over ah who nigga face i use to ride 😳😩👇 | negative
-RT @Olimofa9: ☯Gain Followers ☯RT This
-☯MUST FOLLOW ME I FOLLOW BACK
-☯Follow everyone who rts
-☯Gain
-  #GAIN #FOLLOWTRICK #FOLLOWBACK vue] | negative
-@cavykatie #$&amp;$£$^$_$^$^$$$$####€ picture won't upload. But you see they can get pretty big :p Ours carries my kitten around in his mouth. | positive
-@YoungSuph412 chillen chillen you http://t.co/38ijGn9Gxz | positive
-RT @EsmeRara: Lmao. Yo http://t.co/eBxCLITTHQ | negative
-Acquired taste is like Stockholm syndrome for your tastebuds | negative
-Hating niggas be like IceJJFish https://t.co/IBkYoEnLoU | negative
-I can tell by the  way u looking @ me | positive
-Still 6 hours til I'm going out :( someone come see me | negative
-RT @9GAG: They tell you to be yourself 
-Then they judge you | positive
-My life revolves around Blackhawks games | positive
-@nickcoble10 yeah I'll text you about that 😂 | positive
-the way gage calmly battered his and sophie's sets last night tho 
-the team is so strong | positive
-RT @Bereniceujj: ☯Gain Followers ☯RT This
-☯MUST FOLLOW ME I FOLLOW BACK
-☯Follow everyone who rts
-☯Gain
-  #FOLLOWBACK #ANDROID #BELIEBER 1#sh | negative
-excited for my birthday yay 😊 | negative
-RT @_LiYAHM0NE: I need some ink | negative
-@IAMMGraham @Sandyisrunning Michael Graham has been pushing to help her too! | negative
-Mmmm I can be the biggest asshole ever.. Just saying | positive
-I literally fell asleep listening to hard 2 face reality. | negative
-@AshleighMilner I'm so excited I might burst. Can we have cider on the train and cocktails at lunchtime? | negative
-RT @MostarLFC: Samir Nasri "I voted for Luis Suarez. He’s a complete player. Suarez deserves to be Player of the Year." http://t.co/wNtHwPo… | positive
-RT @samuelj29060: Oh wow. Twitter won. http://t.co/oztkYIIX1z | positive
-RT @followback_707: Retweet this ..my kik : mubark_83 my skype : m.22moom add me if you want talk me | negative
-@Iammarclouise alright :) | negative
-RT @WorldStarFunny: why did I just die 😂😂 https://t.co/Nr5ji3cHBK | positive
-RT @tarcouture: "niggas gone be niggas"... hell no, you not gonna be MY nigga if you out there doing you 😂🙅💀 | negative
-#8: Buy Whole Foods Ground Almonds 3 Kg http://t.co/wwTgBPFBgj Buy Whole Foods Ground Almonds 3 Kgby Buy Whole... http://t.co/aMNRHF2YA2 | positive
-Rainy days=lazy days:) | positive
-After vacay effect , lapar jam malam 😤 Kumaha teu endud (at Jl Ciguriang) [pic] — https://t.co/v2jzZoo4Uw | positive
-#RunningToTheBootyLike http://t.co/BUEVcIXnep | positive
-RT @ravikmalhotra: "Not even a single AAPtard is trending #DamaadGate. Oh sorry, forgot, Damad to woh Kejriwal k v h! #AAPCongBhaiBhai http… | negative
-RT @Footy40YearsAgo: Drama at Old Trafford as #MUFC hero Denis Law backheels #MCFC into 82nd-min lead. With #Birmingham still leading, Unit… | positive
-At this bridal modeling show in support of a friend. They are practicing right now. The little kids… http://t.co/UpjTbgf81N | positive
-RT @graceellisxo: he knows 😂🎉 http://t.co/NfJwICgLzI | positive
-Thai iced tea and munchkins #nomnom #thaitea #donut #breakfast @ D's Donuts http://t.co/sE98d0uFT8 | positive
-Green Vegetable Diet For # Weight Loss          http://t.co/KerB5NXq7a  | negative
-Sunday shopping #100happydays #day6 #shopping #everyday #shopaholic http://t.co/IFD2QTV6t5 | positive
-Damn, I wish.. | negative
-RT @justinbieber: @TheBieberHonor love u too | positive
-I told booty ass not to eat that greasy ass pizza on my bed , now it's shit all on my comforter | negative
-RT @7amodAlAli: They make it seem very easy lol  AXE Body Spray Ad 
-https://t.co/TPep46wYSY | positive
-RT @sluttyzxyn: lol were all horny but still virgin. one direction fandom everyone. | negative
-RT @BOOM_ThatsBri: If I really fw ... ima find a way to get to you or chill with you .. rt | negative
-RT @KenndrickLamar: Choose me or lose me. I'm not a backup plan, &amp; definitely not a second choice. | negative
-#BYUPDATE PHOTO: Kim or Khloe?  Red and Matching Gladiators http://t.co/AtDPmUPgPp VIA @Bayyou11DotCom | positive
-RT @SierraCFitz: Take me to chipotle please | negative
-Infographic: Cisco Visualization | The Internet of Things...: Infographic: Cisco Visualization | ... http://t.co/It7awVweWr via @OpineIT | positive
-RT @Prblyfakingher: "you’re too cute to be single!" 
-Then date me. http://t.co/w0U8LJrFND | positive
-Charlotte bound w/ my bbz @savanna_styers and Abbyyy. | negative
-I purchased the Bad Karma board in #SkylineSkaters http://t.co/9JgWWZ4KnH http://t.co/5CIypwjoDS | positive
-Hope all the Pirates are surviving the end of the semester! Hang in there it is almost summer! 🌞💜💛 #marketing #ama #ecuama | negative
-@DenhamLouisa @HarryHortz  Na no bullying or I won't let him talk to you ✋ | positive
-@_HeStack_iCount I knoww🙌 | negative
-Who push am?  "@Iam_wills_: Wat do u call Gerrard slip???"@BswagggMUFC: There is Nothing like Lucky in the Game......Mou Was more Tactic | negative
-You'll get bored of me, annoyed of me, hate me, stop talking to me. You'll leave me eventually, just like everyone else. | negative
-“@EbonyCampbelll: “@lovelybankz: Find a MAN who cant wait to be showered with loyalty”it's always the bruh bruhs tho smh”RIGHT 😂 | positive
-@rootsmansoulx I'm good thanks and u? :) | negative
-RT @justinbieber: All smiles http://t.co/LQqVQfaOMZ | positive
-RT @sasspantsJ: I'll fight for you, but I won't compete | positive
-@Winkleberry12 happy birthday boy. Hope it's a good one | negative
-RT @InspirationaII: The secret of happiness is to count your blessings while others are adding up their troubles. | negative
-I apologize. I need to change who I am just a bit cause if I don't I'm gonna ruin this friendship. | negative
-BBC News - Vatican declares Popes John Paul II and John XXIII saints http://t.co/4T3I0Fk4zI | positive
-@CandiceLivoti made me cookies😊 loveee her | negative
-RT @girlposts: Me when driving https://t.co/7RQ6Jh5E08 | negative
-RT @girlposts: Me when driving https://t.co/7RQ6Jh5E08 | negative
-RT @iheart_hemmo: #PUTANGINAFOLLOWPARTY so their language is fcking awesome, their weather is warm &amp; the people are friendly 
-MOM CAN I MOV… | negative
-Just added hot new product https://t.co/0phVFesqne to my boutique https://t.co/nLvz98a1Ev. Check it out: http://t.co/n75oqnDGsr | positive
-RT @junejuly12: Plural for beer is beers  
-Plural for deer is deer 
-
-Do deer like beers 
-
-Things I think about as I drink beers | negative
-doing a @KelAllenUK and having a treat day 👍 http://t.co/2spYhGNZ4M | positive
-RT @kirreddemi: had to let my broski show y'all how it's done 😎🙌💉💸🔋🔌 GO OFF DREY @tweets_by_dreyy http://t.co/nwILgirpUv | positive
-Vote on Justin, he is losing http://t.co/czXKuA5p0D? | positive
-. . I Need To . | negative
-To wake up tonight for the Phone MV or not to wake up... | negative
-[[My problem used to be typing 'she' instead of 'he' and now it's typing 'he' instead of 'she'. The boys have taken over my brain.]] | positive
-RT @YeahthatsKdog: Sunday is my chill day to relax and get a massage and watch movies and eat nice Sunday meal | positive
-RT @DaTbOySmOkEyy: It's hard to find a woman when u talented and black | negative
-I love catching up with #BritainsGotTalent on a lazy Sunday and I'm proud to be British born (even if I do have a long exotic latin name) 😜 | positive
+`Sanlise Celluon Review - Next Generation Keyboards http://t.co/tHfptefgZB` | negative
+`Netflix all daayyyy longg` | negative
+`May is gonna be rad. I'm turning 17, Amazing Spider-Man 2 is coming out, and prom yo.` | negative
+`Emotionally: I'm done. Mentally: I'm drained. Spiritually: I feel dead. Physically: I smile.` | negative
+`Last night was pretty cool.` | positive
+`It is everywhere,yet most commonly found at hen parties,girls nights out,"just having drinks",sushi sundays,brunch &amp; so on..` | negative
+`RT @zoeyzuko: Church with my favorite women in the world 😘😘😘 http://t.co/3K9PDol1Y3` | positive
+`RT @rellyrell420: Have u considered my servant_________? (insert ur name)` | negative
+`RT @BarricadeRadio: we've put up a temporary site at http://t.co/GqV0mZ9ovc and tonight brings Hedonism Bot from 7-9 and Owl from 9-11. x` | positive
+`@DaphneLynn14 I'll baby sit you😜` | positive
+`RT @taliagaraffa_: “@TheFunnyTeens: My life in a picture http://t.co/vuPh7BOoyI”` | negative
+`@ryansradarmy 2 and yes hat` | negative
+`RT @tyleroakley: my hotel Internet is WORKING!? this is new?! I'm stalking people who reblog my new video (http://t.co/P1LaTy334m) until it…` | negative
+`Chapter XVIII   Countess Rostava, with her daughters and a large number of guests, was already seated in the drawing room. The count took` | positive
+`@NBCSportsSoccer Not exactly a "slam." Guess I missed something.` | negative
+`RT @SMignolet: Heads up! #WeGoAgain still #2togo` | negative
+`RT @surayyah__: It's a beautiful day today😎` | negative
+`RT @NiallOfficial: Haha @louis_tomlinson decided he was gona colour in my scar ! Looks mad http://t.co/RSj3FzwiIi` | positive
+`You'll have to date some fucked up people before a Vic Fuentes gets dropped into your life` | positive
+`RT @NHLonNBCSports: .@JimCarrey and @SpikeLee enjoyed that Rangers goal #StanleyCup http://t.co/LcsE0vB1k0` | negative
+`I honestly don't need to be talking to oomf....` | negative
+`RT @deathbyfashn: Drake &amp; Rocky http://t.co/jR08QRG0dc` | positive
+`#ThanksOneDirectionForChangingOurLives` | negative
+`#RUSB - RBI double by puts GWU up 1-0 in 2nd` | negative
+`@martyngoblin Or agree! Agreed.` | negative
+`RT @FamiIyGuyScenes: Peter what is that? http://t.co/7BYXIn0wxl` | negative
+`Margaret is literally the only person I talk to` | negative
+`RT @MTVAwkward: Know the best thing about tomorrow being Monday? It's almost Tuesday. #awkwardsenioryear` | negative
+`That's hook af` | negative
+`RT @WhoaBiebz: oh fuck he looks so fine http://t.co/k3spo8uTzX` | negative
+`I have so much to do today. I think instead of doing everything I need to do ill just go sit in a corner with my computer and watch YouTube.` | positive
+`Say peace to my bredrin, blow the smoke at your reverend thats the almighty high` | positive
+`Afghan election: Abdullah and Ghani set for second round - BBC News: The GuardianAfghan election: Abdullah and... http://t.co/FX2uuJLPHF` | positive
+`if u are a fan of the boys why r u talking negative about them i dont understand` | positive
+`RT @BILLlONAlRE: Retweet if you want this view http://t.co/JXG9e35XOG` | positive
+`RT @xxhelenaparry: Need to stop overplaying songs before I get sick of them` | negative
+`IG IMAKEMSAY_` | negative
+`RT @inkeddimples: they better stay together because that means growing up, getting a job and able to bUY CONCERT TICKETS BY MYSELF` | positive
+`@KurtisMVflufpuff you know? http://t.co/1O0uqM8A7w` | positive
+`RT @CharlieTarran: Yes @bsmtc. We did it! So proud!!!!!` | negative
+`RT @kevinureza: thanks for the last 17 years ! Thanks for the players and the coach ! this season are so amazing ! at least now many people…` | positive
+`one person followed me // automatically checked by http://t.co/Q1NPaFxqmR` | negative
+`Greedy bastard... http://t.co/YEo9tglFlX` | positive
+`I'm in a horror movie. Can't even stop on the side or else we going down 😞` | negative
+`“@historicbieber: IM ON MY PERIOD AND I JUST SNEEZED LSJDKSZL” LMFAO I FEEL U, STAY STRONG` | negative
+`@Xammien @dato_roosevelt dis nigger need comforters dnt give him wat he want, pls 4get the LOSERfool fan` | positive
+`Day 153: 5 years and counting. We still got it. #500daysofjordan @theeleganttruth http://t.co/SDpenYoAEu` | positive
+`@rachbeck17 YES! Text me the times y'all play` | positive
+`Follow my boi kingofthehill_1 he getting better with them clippers!!! http://t.co/Vi4ye5QTKg` | positive
+`RT @EuropeTeam5SOS: rt for a dm to ashton irwin http://t.co/SKF8233Z2N` | negative
+`@junminem ARE U EVEN FUCKING FAT LISTEN IM SHORT TINY AND SKINNY BUT MY CHEEKS ARE SUCH A BAOZI BC FOODS IDC I LOVE FOOOODS I DO WHAT I LOVE` | negative
+`"We need that roof access right now so I can jump"-@gabriellamarzzz   "No we tried yesterday it's locked" -@martinithoo 😳😳😳` | positive
+`RT @camerondallas: Watch out, we're armed and dangerous like BOW! http://t.co/8a31CFxVci` | positive
+`RT @pesekcoot: Don't come back again!` | negative
+`tattoos are starting to become my WEAKNESS 😩😫` | negative
+`RT @ThisIsDeep_: This is so deep and relevant right now http://t.co/GMCzeoPjnn` | positive
+`RT @DavidRoads: I am in charge of how I feel and TODAY I am choosing HAPPINESS.` | negative
+`I had a dream I cracked my phone ... That's a sign I need to get a screen protector ASAP 😭😭` | negative
+`RT @SamObann: Being honest may not get you a lot of friends but it will always give you the right ones.` | negative
+`@LilFr3ddy I know...But Adam Silver is Weak ...A strike may be the only way` | positive
+`@_BenIs34 It is Yomi's by extension then.. Still a failed gaff lol` | negative
+`RT @enriquemg99: @Ripleys @sarahfconnor yes, we had a nice time!` | positive
+`I wanna go prom shopping` | negative
+`I feel like as a woman with natural hair you should always have some braiding hair on deck` | negative
+`@NiallOfficial follow me please i love you so much &lt;3` | positive
+`Today stats: No new followers, 2 unfollowers via http://t.co/e7NYU0HsOi` | negative
+`Hundreds of Muslims flee CAR capital http://t.co/iCVPf8ZqfR` | positive
+`@OBEYBrookes @SirJamieHickman @J0N_Gresham what Brookes said lol..good match just then BTW x` | negative
+`RT @WhennBoys: I want a cute, long relationship where everyone is like "damn, they're still together?"` | negative
+`RT @PrinceRoyce: Oh man I heard girls aint getting their ID's checked at moroccos. Lol is gonna be a problem tonight prince royce on the wa…` | negative
+`RT @tomlinlaughter: @Louis_Tomlinson Good luck for your 2nd show! 🍀 So excited about seeing #WWATOUR 😊 Please follow me (@tomlinlaughter) &amp;…` | negative
+`@SuperTeamKid lmfao, you were in touch with your emotions at a very young age and that's okay` | positive
+`@TegansGiraffe @pizzaandsara Emma hahaha I'm laughing so hard rn` | negative
+`Tears flowing - Baptisms going @BWOCBrentwood!!! Incredible # of baptisms today!!! http://t.co/eA7qu5fEzt` | negative
+`via @realmccoyseo Quartz Weekend Brief—Mobile tech, Rana Plaza, fantasy sagas, growing-ups #technews http://t.co/hyblcCBoO1` | negative
+`@ValUnicorn1 Is Something Wrong?:o...` | negative
+`RT @ashton_kuttcher: rt if you agree http://t.co/ACr0C9aWQ0` | negative
+`Really gonna miss the past few years tho :( im not ready to leave this school yet` | positive
+`Clam down for what http://t.co/3aSTnrnjHp` | positive
+`TSSSS PPL CANT FOLLOW BACK NOWADAYS 😒` | negative
+`Just posted a photo http://t.co/8aN6b2gMoN` | positive
+`@drunkforevs you should follow me :) that way I can dm my selfieeeee :))` | negative
+`RT @SCTopPlays: Crazy game winner! 😳 https://t.co/o97ztMGmGO` | positive
+`@sophiaaaa_okken bean baby i miss ya so much` | negative
+`Everything God reveals to you doesn't mean it's for the world to know. Sometimes you need to just be thankful for... http://t.co/hhPejARwax` | positive
+`RT @NiallOfficial: Haha @louis_tomlinson decided he was gona colour in my scar ! Looks mad http://t.co/RSj3FzwiIi` | positive
+`Gettin lit wit mad people and looking at the pictures on your phone the day after&gt;&gt;&gt;&gt;` | positive
+`I meant drink lmfao` | negative
+`RT @RyanMcL2: Special club #ynwa http://t.co/rCpGQOskKh` | negative
+`RT @TheLifeDiaries: 5 lies that girls tell:  1) I'm fine.  2) I'm not jealous.  3) I'm over him.  4) Sure we can be friends.  5) It's okay.` | negative
+`RT @VillainyThrives: This is so true http://t.co/Zw3tigui9p` | negative
+`@piersmorgan @faisalalsager 30 goals 12 assists truly amazing` | negative
+`Breakfast of champs 😋 http://t.co/9vIpIZNc9l` | positive
+`RT @onedirection: Keep your #YouAndI videos coming in guys. Submit here... 1DHQ x https://t.co/fjXzOVjMdW` | negative
+`Seeing Auburn return 47 picks for TD vs LSU '94 RT @Kontra402: What moment made you become emotionally invested in any of your sports teams?` | positive
+`RT @TheDogDispatch: CHOIR: First place for Men's Choir, First place and Perfect Score for Women's Choir, First place Overall for Women's Ch…` | negative
+`I stopped fucking with these broke hoes and got a boss chick` | negative
+`Playing Dark Souls: Prepare to Die Edition. http://t.co/pcJ84ohjRB` | positive
+`Shout out my mate @Calums_Universe` | negative
+`RT @kickthepj: coconut puff treat thing? check. tea? check. chilled out music? check. It's time for an intense writing night!` | negative
+`I want some cereal but somebody ate all the cinnamon toast crunch 😩` | negative
+`RT @NHL: With that goal, @BRichards_1991 has scored 30 career playoff goals. @NYRangers lead 2-0 mid-2nd period. http://t.co/iu73mlI0N3 #St…` | positive
+`Just confirmed reservation @ExcaliburVegas for tonight! Hope everything else is easier than getting a rep on the phone was! #iwantaview` | positive
+`@OmarKelly I agree 100%` | negative
+`And I'm like no bad` | positive
+`RT @RELATlONSHlP: Sad but true. http://t.co/ng5txrgoUW` | negative
+`RT @wizkhalifa: Pittsburgh smells so awesome` | negative
+`This girl might be my cuzzo let me chill lol` | negative
+`someone take me out of my misery` | negative
+`RT @imokman: “@funnyortruth: There are two kinds of people. http://t.co/OacJVzcA8N” I'm the second...` | negative
+`RT @Mr_Carterr: I'm too lazy to get out of bed.` | negative
+`I have completed the quest 'Plant 3 Pumpkin Pat...' in the #iPhone game The Tribez. http://t.co/XrFWpR5ikl #iphonegames, #gameinsight` | negative
+`RT @desiree__16: oh my 😍` | negative
+`if they weren’t wearing the chick/eagle costumes minseok would’ve probably just landed on his back but because of the costume he /rolled/` | positive
+`Fotoset: m-hart: Rude reminders from the hand. http://t.co/exEvLMb8FA` | positive
+`Life is like an elevator..on your way up, sometimes you have to stop and let a few people off.` | positive
+`RT @itsRyanButler: My brother for life. Your creative, hard working, loyal personality inspires me to follow my dreams… http://t.co/MEQ4Qze…` | negative
+`A sitcom about @AnaAzenaro and I would just be a spunky fashionable librarian and a filthy bedridden librarian making bad historical jokes` | positive
+`Light Bladder Leakage (LBL) during or after pregnancy is very common. Want to learn more? http://t.co/bGOaB0Xlr3 #LadiesWithPoise` | positive
+`@garryrobinson2 yea I was but then i went out ,but im bout to again when i get home` | negative
+`@Mia_Grace81 @EmmaclaireGmail @MahoganyLOX no. lol. when I get the video I'll send it to you.` | negative
+`RT @bitchprblmz: “Don’t tell anyone what I just told u” they say  “I won’t tell anyone” I reply, as I copy &amp; paste the entire conversation …` | positive
+`RT @zaynmalik: Sometimes you pretend even when it's real ...x` | negative
+`@ConorMaynard Conor, please follow me. You're amazing. #NewConorMaynardCover #NewConorMaynardCover https://t.co/uFlCXa5SyL x261` | positive
+`Tutu ‘Glad’ Mandela Not Alive To See Today’s S.Africa: Nobel peace laureate Desmond Tutu said in an interview ... http://t.co/9u5ozKwcUD` | negative
+`RT @UberFacts: You once held a world record when you were born for being the "Youngest Person on The Planet."` | negative
+`@LongLiveJocelyn I'm your best friend. Tf you think this is?!` | positive
+`RT @Ritheesh: @Bombaite  http://t.co/9VP7Duutqx Very late but I presented here, all the arguments I could, see if some thing could be added…` | negative
+`RT @SCTopPlays: LeBron Handshake w/ Magic &amp; Jalen Rose Vs. White Guy 😂 https://t.co/rQKY7zfwek` | positive
+`RT @laurarowley_: I love heavy rain` | negative
+`@recklessziam @WeLiveARTPOP we can be even MORE annoying u know?` | positive
+`I got Pulp Fiction! Which Quentin Tarantino Film Are You? http://t.co/ky8pYS75U1 via @thewarclub` | negative
+`RT @RONALDuu4t: ☯Gain Followers ☯RT This ☯MUST FOLLOW ME I FOLLOW BACK ☯Follow everyone who rts ☯Gain   #ANDROID #FOLLOWBACK #ANDROID 6y3s` | negative
+`Viernes 2 de Mayo The Best Day Of My Life :3` | negative
+`@MLG_Trryy lol tell me if you like it http://t.co/9JlwaFhr7m` | negative
+`A man grows most tired while standing still. #ChineseProverb”` | negative
+`Last night I dropped off some girl that lived in a mansion 😈` | negative
+`I found Knight’s Shield in The Tribez &amp; Castlez for #iPad. http://t.co/r10yjFemyS #ipadgames,#gameinsight` | positive
+`@Real_Liam_Payne you betta stay together forever;)` | negative
+`@Real_Liam_Payne   Hello liam! How are you angel?  If you see this follow me please! Love you so much xx20 http://t.co/EvKJOdBtYi` | positive
+`In a magic place ❤️❤️ #siracusa #teatrogreco #giamburrasca #projectrunwayIT @ Teatro Greco http://t.co/nQjZhj7Jo1` | positive
+`RT @Kiazhane_2: My gf is a butthole 😂😂😂` | negative
+`RT @DrakeFunnyShit: this isnt the drake i know http://t.co/GwDtn7VSuh` | positive
+`My internet is so bad I'm going yo cry` | negative
+`@Real_Liam_Payne I love you, you are my inspiration, I am very proud to be your fan, you deserve it all, follow me, please ily.. 💜💜98` | positive
+`Photo: But now loneliness is loose upon the landscape #dallaswillard #brick #colors #light #loneliness http://t.co/WjYoVUmYs4` | positive
+`RT @apis_boh: Night @ehbazlaa` | negative
+`RT @petitehaze: DJ Augustin is a little cutie pie` | negative
+`RT @DreamHouseX: Retweet if you want this 'glow in the dark' room! -&gt; http://t.co/UF4VBAx7dr` | positive
+`I hella want beans` | negative
+`🌙🎶🌙🎶🌙🎶  @Real_Liam_Payne you are such an inspiration , words cant describe how much I love you ❤️ please follow me      🌙🎶🌙🎶🌙🎶  81` | positive
+`RT @MacMiller: Ima start staying home from things more often. Faking sick and what have you.` | negative
+`Life is such a competition for everyone these days, it's ridiculous` | negative
+`I can't help falling in love with you.` | positive
+`RT @MaxBlumenthal: @imraansiddiqi so me and @davidsheen *inspired* Donald Sterling? I haven't heard the tape yet.` | negative
+`RT @wine_andBRIE: Teaching my parents how to use social media is the most annoying thing 👊` | negative
+`@COLORFUL_CANCER WWell wwhat do I havve to do to turn that "maybe" into a "Fuck yes"?~` | negative
+`Yesterday was beyond perfect. The crowd went crazy from beginning to end.` | negative
+`Love for Berlin! #travel #berlin #now #vacation #hotel #view http://t.co/QKYey5fZng` | positive
+`RT @RahleeFranklin: Donald Sterling's daughter after game 3 win over Warriors ... Now I see why he mad 😂 http://t.co/MEylKYYnZt` | negative
+`“@girlnaiyahhhh: mf so nosey &amp; jealous 😂💯” thankchuu 🙌` | positive
+`$CUZ Balanced View on Cousins Propert  http://t.co/1fdzATsSx4` | positive
+`@22_PeggieSue lol i misplaced them, but im really not feeling them otc but it's whatever` | negative
+`RT @Real_Liam_Payne: “@MonsoonLou: GUESS WHO'S STAYING A BAND FOREVER http://t.co/jFLpOUEEXr” true story` | negative
+`RT @FillWerrell: Imagine if instead of seeing this, you actually saw what the person was typing http://t.co/Ef7pd8CyCb` | positive
+`RT @MostafaNoor17: Do you ever feel you've become the worst version of yourself ?` | negative
+`Talented Producer Remo @Beats_Forever has new music http://t.co/0mCpHiPiPk &amp; a Dope new Freestyle! http://t.co/8b20SxsvzC` | positive
+`I just added this to my closet on Poshmark: Earrings. http://t.co/nh24PD2tVL via @poshmarkapp #shopmycloset` | negative
+`i wasnt even paying attention to twitter just nah` | negative
+`"@Italian_curves: I make a good breakfast tbh"make me some  be the judge` | negative
+`RT @tonyjaaofficial: #Wow #SPLII starts shooting next #week http://t.co/UO8HLGNy5T` | positive
+`@Real_Liam_Payne I LOVE YOU LIAM. AND ALL YOU LITTLE THINGS. PLEASE FOLLOW ME? BRAZIL LOVES YOU ❤❤ x11` | negative
+`RT @NiallOfficial: Haha @louis_tomlinson decided he was gona colour in my scar ! Looks mad http://t.co/RSj3FzwiIi` | positive
+`@BalloutFrom900 GO WATCH 💻📺📱&amp; RT ▶▶🆕🆕🆕◀◀ Video 📷🔥🔥 #500★ 🏢🏢🏢🐍 #🇬🅰N⛽ M.O.C My Side Of Town: http: ✈GO //youtu.be/QbiD1vfYQG4` | negative
+`I wanna play the Sims` | negative
+`Capitale Sundays` | negative
+`I posted a new photo to Facebook http://t.co/N7mXzLMf5h` | positive
+`RT @MercyTourney: Need more people to sign up for the 4v4 Variant 5K tournament! Sign up here: https://t.co/KbGWsz9AVE` | positive
+`RT @obeymedaddy: I wanna play with #oomf ! 😩😏 http://t.co/AD0UgcgE1i` | negative
+`@ohminhee93 ☆ RT pls!! Newly opened Harry potter themed closed agency~ Many idols available. Join our family NOW~ :D ☆ SUGA &amp; JIMIN WANTED` | negative
+`@GirlDaydreamin that sounded so ironic hahah` | negative
+`RT @IAm2skilled: When this happens, I have to choose which grammatical sin I'll have to make in order to send a tweet http://t.co/z38c7BIDWI` | negative
+`Has anyone tweeting ACTUALLY LISTEN TO THE TAPE?  Conversation sounds fake and doesn't make sense.  Let's not crucify #DonaldSterling yet.` | negative
+`RT @MonteSchisler: My dad used to take me to Cardinal games - it was my turn to play host with a visit to the field.. #BestDayGMA http://t.…` | negative
+`I just made the lady redo my baseball picture because I forgot to flex #gunshow` | negative
+`Weak sauce!` | negative
+`RT @WhennBoys: I want a cute, long relationship where everyone is like "damn, they're still together?"` | negative
+`I'm from the land where my great grands ran from lynches` | negative
+`Dhoni....cool, calm, executor par excellence. Grt example to corporate biz leaders....Strategy onetime, execution excellence everytime!!` | positive
+`RT @EpcotCentre: An Epcot guest was upset because her purse was snatched while she tied her shoes on a bench, but there's literally nothing…` | negative
+`RT @neverknownfacts: Creative, confident and or intelligent individuals tend to talk to themselves more frequently.` | negative
+`RT @thinksarcasm: Parents notice your fake friends before you do..????` | negative
+`@KoriCortez allowed*` | negative
+`I've collected 110,820 gold coins! http://t.co/71nzHyGFmw #android, #androidgames, #gameinsight` | negative
+`RT @kingb_3: "@iKeepItTooReal: It they made a movie together nobody would be able to stop laughing 😂😂 http://t.co/sW5DrHmoYU"` | positive
+`PSA: drinking your weight in iced coffee does not make it summer #itried #fourdays` | negative
+`Can 6 people please go follow me on Instagram it's bugging me how close I am to 300  http://t.co/YIqkoV2Svi http://t.co/wr3Qqch3Eb` | negative
+`Lovely #weekend with #family #Wedding #cousins : )` | positive
+`RT @AmirNazar_: The more you learn about Islam, the more you fall in love with it.` | positive
+`NiallsCage_  I like your icon 👀` | negative
+`RT @1directiongirls: "liam waved at me from the balcony" "niall smiled at me" http://t.co/3siUDKJTyG` | negative
+`Nothing is more unattractive than guys that have no respect for girls 😒` | negative
+`Y'all I go alum today. When did I get so old 😑` | negative
+`RT @chIoeonvine_: i bet people dont understand that im joking 800% of the time` | positive
+`Fabulous - Thim Slick` | negative
+`@justinbieber When will u see me ? I beg you follow me and see me ! I Love u more than anything ^^ please baby..10.106` | negative
+`Gold Olympus Breeder! I just bred a Gold Olympus Dragon in DragonVale! Visit my park to check it out! http://t.co/GhDOlroCGt` | negative
+`Y'all not ready for this one.........#ThickHipsandWhips @ Dreams #May3rd ( #GreenwoodCarShow After Party)` | negative
+`RT @LeeSeesArt: #condor soars above  #GrandCanyon. #nationalpark  #travel #Arizona #blackandwhitephotography  http://t.co/5PVLIyD2Ni http:/…` | negative
+`The Forza is like the BTCC, even the endurance racing!!! #panelbashing` | negative
+`RT @umfuckno: aaaaaall of me  hates  aaaaaall of school` | negative
+`RT @KimLoLee: James and Andre ❤️ #Startalk @ GMA Network http://t.co/UbYHDtJHxS` | negative
+`RT @NiallOfficial: So grateful for everything! I can't believe that these boys are playing a stadium tonight! Thank you so much ! Love u ht…` | positive
+`@shayna_white that's what you get for what you said to me earlier` | negative
+`RT @rastaavibe: rule your mind or it will rule you.` | positive
+`Better to be hated than loved for what you're not` | positive
+`RT @KongCoblenng: The person who makes you happiest is the person who can hurt you the most.` | negative
+`“@thoughtskylie: LMAO this bitch 😂😂 https://t.co/ePwpolVuh0” wtf ahaha` | positive
+`Mmmm I love oatmeal` | positive
+`@KourtsVentura_why? Looool` | negative
+`RT @gboooty: @LAUR_GUEST I'm so happy you are home 😍😍😍` | negative
+`The refs want nothing more than to put the flyers back In this game` | negative
+`RT @rtyourboyfriend: RT if Summer is your fav. ☀️` | negative
+`I'm sorry for my bizarre behavior yesterday.` | negative
+`#HowDoYouKFC? Usually not with my phone in my hand, recording myself tooting my own horn like I've just discovered King Tut's tomb.` | positive
+`@moovindia dhoni's helicopter became rocket #MoovoftheMatch` | negative
+`RT @_loveePorcheee: ; Tyler killing me with all these retweetS man !` | negative
+`RT @NiallOfficial: That's when I started ballin ! http://t.co/mbAZ91Jy7u` | negative
+`Today stats: 2 followers, No unfollowers and followed 2 people via http://t.co/jicnBOnbLq` | positive
+`RT @limkokwing: One doesn't become educated just by going to school. Having many degrees doesn't make u more educated than those who couldn…` | negative
+`@MouseCyber @Bigmo486 @Ckirkusa @rosenbaum_markf @TangerineSkies2 @freedmeto @topdrive496 Hi Kitty` | negative
+`RT @YouChoices: Would you accept the risk? http://t.co/VEJriuABVo` | positive
+`123.456789- Rick😂 you are hilarious and my zombie apocalypse partner💁` | negative
+`SOMEONE HOLD ME http://t.co/og8GbphKkB` | negative
+`RT @paigemarie_xox: i do have feelings you know😔` | positive
+`RT @peoplemag: Steven Spielberg is reportedly writing the sequel to The Goonies. #GooniesNeverSayDie http://t.co/iNANRt3czp` | negative
+`@rizzutoo is the best 😘😍❤️` | negative
+`RT @Alex_Picassoo: This summer &gt;` | negative
+`@losno @TidoRigdoney that'll do too` | positive
+`Don't just text me because you're bored because that gets my hopes up. I want a text from you because you genuinely want to talk to me` | positive
+`@jnwangs luhan is a vagina so of course` | positive
+`RT @CHlLDHOODRUINER: Idk what's scarier. Her protruding hip bones or the fact that this is people's idea of perfection http://t.co/VBHoYWNT…` | negative
+`We Love You And We Miss You The One And Only Mr. Prom King @Gforce_bill ♥ 5` | negative
+`RT @bendanafer: @SpeakerBoehner mocks @GOP members on #ImmigrationReform  http://t.co/KIqOZHolPS  via @HuffPostPol cc @SunSentinel #TNTweet…` | negative
+`Have you heard ‘Cake freestyle (FT Don B)’ by NinoThePrince on #SoundCloud? https://t.co/MzoUZLUrMn` | positive
+`RT @sassytbh: You're a bitch You're a b You're a You're You Yo Y You You're You're a You're a bi You're a bitch Oh, you're still a bitch` | negative
+`RT @REALTORS: Commercial Roundup: Land rights in NV, 2 Denver Stories, Flipping Warehouses and more... via @commsource http://t.co/JuYIbSvY…` | positive
+`Where's them dope parties so I can smoke largely?` | negative
+`The #mustard #greens from last #fall are in the #flower and green #seed stage, should have plenty #seeds. #garden  #organic` | positive
+`Taylor had no chill last night.` | positive
+`These girls really blame they're actions on their zodiac signs. Like "I'm a bitch cause I'm a Leo." NO you're a bitch cause you're a bitch.` | positive
+`RT @NiallOfficial: Haha @louis_tomlinson decided he was gona colour in my scar ! Looks mad http://t.co/RSj3FzwiIi` | positive
+`Today stats: 2 followers, One unfollower and followed 2 people via http://t.co/tQghh1XC8j` | negative
+`Suthep Thaugsuban (สุเทพ เทือกสุบรรณ) (00.25): When Yingluck's supporters first introduced the concept of... http://t.co/1mwGJo2oTg` | negative
+`RT @Michelletweetn: @TianaMadia WHO DAT WOMAN` | negative
+`RT @Real_Liam_Payne: “@MonsoonLou: GUESS WHO'S STAYING A BAND FOREVER http://t.co/jFLpOUEEXr” true story` | negative
+`RT @ALevelProblems: Am I ready for exams? http://t.co/OL3XvHlbYF` | negative
+`RT @ComedyOrTruth: If my boyfriend did this I would break up with his annoying ass http://t.co/L03YxvqUka` | negative
+`Look out for my awesome study break giveaways tomorrow like highlighters and coffee to-go cups #ASOSoncampus #asosUTAMPA` | negative
+`RT @_5SOSpenguins: Tell me one flaw bc I sure as hell can't find one. 👀🙉 -k http://t.co/emUJgj6Ydt` | negative
+`@MileyCyrus Don't adore money ! Adore God` | positive
+`a red beer and shrimp by the pound at boiling crab sounds so ideal right now` | positive
+`RT @CeceZimmer: it's funny when people talk shit about somebody one day, then take a picture w/ them the next day like they are bffs` | negative
+`RT @cibc: Financing a home renovation for an income property? You do not want to miss this webinar with @SMcGillivray. http://t.co/8d0SKHVl…` | negative
+`He's the cutest 😩😍 http://t.co/GOk7CIgBs1` | positive
+`Keurig K-Cup Half-Caff and Hazelnut 18 cups each [36 total] FREE SHIPPING! http://t.co/Gfp6RdggZc #coffee #keurig` | positive
+`“@DalalAlDamegh: Lately, you never leave my thoughts..”` | negative
+`RT @Thomaspridgen: Favorite photo from Manaus Brazil with suicidal tendencies http://t.co/HsM66KD572` | negative
+`It's a wonderful feeling when this is the vision for something. I'm all in!!!! #ysbh #teamrhino… http://t.co/w10l5QZUCy` | negative
+`RT @Real_Liam_Payne: What you looking at! http://t.co/frzxOBrRyJ` | positive
+`RT @Emblem3TourNews: Broment at the RDMAs last night! http://t.co/Dsf9QU8tj9` | positive
+`RT @Real_Liam_Payne: This is the best day ever can't believe I've been trending this long aha hank you guys` | negative
+`RT @D_Brvss: Fuc Deez niggas w. A passion` | negative
+`RT @HoodJesusYo: When God helped Moses split da sea in half errybody behind him was like http://t.co/Fw4tHS0SKq` | negative
+`On the DL :: The Other Woman http://t.co/FaZUTHtgVU` | positive
+`RT @mitchell6669: Regrets are for the weak. Lessons are for the others.` | negative
+`RT @assylass_: @sniffingliam @Real_Liam_Payne now I'M laughing hard!` | negative
+`@mandyapolis @foyobli I have started the bathrobe revolution  join me  and together we will show the world that we mean business  or leisure` | positive
+`RT @BieberAnnual: Retweet if you want to gain just follow everyone who retweets this and follow back who ever follows you` | negative
+`@MadMaxCronicles @FinboroughArms what a cock` | negative
+`RT @zaynmalik: http://t.co/lDS9X1tiRI go listen to some naughty music !! :D` | negative
+`@MathiasAllen @chaindawgg literally just laughed myself to tears.` | positive
+`RT @BestTextMsgs: That one crush that never really goes away.` | negative
+`RT @IDFSpokesperson: When the planes of the #Israel Air Force flew free and proud over Auschwitz #HolocaustRemembranceDay #WeAreHere https:…` | negative
+`RT @InspowerMinds: BEHIND ME is infinite #power,  BEFORE ME is endless #possibility,  AROUND ME is boundless #opportunity.  Why should I fe…` | negative
+`@HoodratHemmings i used to have his number holla` | negative
+`If you ignore your girl then of course she'll be texting me nigga duh 💁` | positive
+`RT @gabrielgicale: Don't fuck with someone's relationship just because you can't get one!😂✊` | negative
+`"@AdorableWords: 5 lies that girls tell: 1) I'm fine. 2) I'm not jealous. 3) I'm over him. 4) Sure we can be friends. 5) It's okay."` | negative
+`Muscle is your fountain of youth! #GetLifting http://t.co/IoiHsOaMRj` | positive
+`RT @imVkohli: First 10 million on Facebook! Now 3 million on twitter! Wow! Truly humbled by all your love and support. Thank you! http://t.…` | positive
+`RT @ElisaCollins14: A great style #adidas #russian #federation #jacket #EnLawded #fresh http://t.co/QBmQWarVSF` | positive
+`@cp382 u support Obama` | negative
+`Just finished Dungeons of Fate game at #1d4con group dynamics great with creative solutions to obstacles` | positive
+`new to twitter pleaseeeee follow me` | negative
+`RT @YorksCoastRadio: WIN A PAIR OF VIP TICKETS FOR 8 SHOWS: Jessie J, McBusted, Proms, Status Quo, Boyzone, Little Mix, Legends Of Pop &amp; Un…` | positive
+`Nunez allows a run and the Threshers trail 1-0 as we head to the 4th.` | negative
+`Just races the kean cougar on the track and won 😏😏 #relayforlife` | positive
+`@marcillalashe who it b` | negative
+`RT @troyesivan: Have to say that @ITAtube was one of my favourite conventions so far. Italy is beautiful and so are it's people :)` | negative
+`RT @GOIafrate25: My Dad is receiving a Community Service award from @TorontoPolice today. HQ is filling up early with supporters! http://t.…` | negative
+`@_ErinMacleod hahaha Erin has the kissing disease oh ahhhh` | negative
+`RT @Real_Liam_Payne: “@MonsoonLou: GUESS WHO'S STAYING A BAND FOREVER http://t.co/jFLpOUEEXr” true story` | negative
+`RT @louteasdale: can everyone watch @carolineflack1 s new show Viral Tap tonight at 10 and tell me if its lolz cos I'm missing it :( #goodl…` | negative
+`"@rykalhakimi: love yourself before you love anyone else"yes` | positive
+`Looking for more info on $DATA $PII $RIG  $RT Worth a look http://t.co/Ous0R6cb9K` | positive
+`RT @JoyceMeyer: Just because you can't see it yet, doesn't mean it's not on its way.` | negative
+`RT @huntingdonrugby: Last Chance to buy Picnic Ball Tickets - Huntingdon Rugby Club http://t.co/KJoMKG7BMT` | positive
+`Real question is how did I miss my mouth and spill coffee all over myself when I'm drinking from a straw` | negative
+`@Real_Liam_Payne your emoji love I'm laughin` | positive
+`And as usual nothing is on tv :(` | negative
+`http://t.co/zwaAvRbiTk  Buy Duraclone online in Cheap Duraclone fedex! Generic Duraclone without prescription` | negative
+`RT @dollhousezayn: #ThanksOneDirectionForChangingOurLives you destroyed my social life but created a twitter life which is worth it` | negative
+`I'm sexy and I know it…admit it Sam n Kenny…I'm sexy as hell… http://t.co/NnHR04zdSB` | positive
+`@Shanzi_007 fair enough. It really is beneficial, but I don't think it needs so much time during prime time :/` | positive
+`Who Want It haha ??😍😘👅👏` | negative
+`Donald Sterling Racist Recording  "Don't Bring Black People to My Games, Including Magic Johnson" http://t.co/swc7N90GhW` | negative
+`I hate seeing you flirt with other people.` | negative
+`RT @Jessca_Simpson: Every end has a start. Every start has a decision. Every decision has a reason. And every reason has a meaning.` | negative
+`RT @ICVeo: Missing that one person.☊` | negative
+`http://t.co/q8Nx71zsCI #NotersAtWeekend` | positive
+`BURN BAN "Blitzkrieg Bop" at Trailer Space Records, Austin, Tx. April 26, 2014: http://t.co/BxQqgB3AIB via @YouTube` | positive
+`RT @SK_TheKing_: A boyfriend and girlfriend suppose to laugh at these hoes together. A guy should never have these hoes laughing at his gir…` | negative
+`Today could've been so fun.` | negative
+`#straightfrontin` | negative
+`Please have The cast of preachers daughters apart of the Essence music festival @essencefest @essencemag please and thank you` | negative
+`RT @ASCETweets: Civil &amp; structural engineers: improving the nation’s #infrastructure one day at a time http://t.co/0D1Tw6Hc5E via @divcar` | positive
+`RT @meganwhitecross: Calorie counting goes out the window when it comes to my Sunday dinners 👊` | negative
+`RT @grannywinkle: you know it http://t.co/65vaXD1WSp` | positive
+`RT @New_God_SHERM: Don't no woman deserve to be raped .. Idc what she does type of faggot` | negative
+`"What's under all the clothes Brooke Davis?"` | negative
+`Work and revision are both slowly starting to consume every bit of time I have 😴😴😴` | negative
+`Nope. No tears. http://t.co/5lSzLi7zGd` | positive
+`@Real_Liam_Payne HOW ARE U TODAY` | positive
+`Unsportsmanlike conduct penalty during a hockey game?` | positive
+`RT @krickenn: I had a dream that I was eating donuts and then almost hit a nun with a lawn chair` | negative
+`RT @Joey7Barton: Oh Man City. Its on now. What a title race this is going to be...` | negative
+`RT @HeffronDrive: I feel like lately my schedule has been ✈️ somewhere, ✈️ home, do laundry, ✈️ somewhere, ✈️ home, do laundry.  #LTD #Para…` | negative
+`RT @Andres_Roldan_: Why am I still Rollin there's no way wtfv` | positive
+`RT @_d10k: lil nigga put a curse on his moms 😂 https://t.co/aSMan5N1R0` | negative
+`God your such a dismissive hypercritical little shit` | negative
+`I've collected 7,779 gold coins! http://t.co/nAhswFswYB #android, #androidgames, #gameinsight` | negative
+`I Stay Far Awaaaay From People I Don't Fuck With . For The Sake Of Them` | positive
+`RT @admiradryana: When someone in school calls me by my instagram name http://t.co/ARJ9yYDdK3` | negative
+`RT @Deshaa_: You got my heart dont know how you did it` | negative
+`RT @ZodiacFacts: For an #Aquarius the Single Life Means: Hanging out with your friends more instead of having someone call you 24/7 asking …` | negative
+`@SEXUAL_BAE ohhh ths is true` | negative
+`@fuckumonday1 god yes. You are beautiful. My BF would enjoy that too` | negative
+`RT @MrAlMubarak: RETWEET £1 to Refugee camps Syria even if we can't donate RETWEET so others can Click Link &amp; DONÀTE 100%   https://t.co/8f…` | positive
+`@fisher_jenna I would say I'm an average salt eater.. Wouldn't my finger swell up as well?` | positive
+`@PattiKimble I'll fav that! Even tho grits just dried,ground up hominy. Maybe Hill fixes right @HillaryGuess @marylmcaffry @jabouri_mary` | positive
+`RT @BieberAnnual: Retweet if you want to gain just follow everyone who retweets this and follow back who ever follows you` | negative
+`RT @BitchStop_Hatin: High school was the days 💯 I swear` | negative
+`RT @JayyArrDot: Every dude on my tl know atleast 1 female that anotha dude fucked! And we all ain't even close homies lol... Niggaz be talk…` | negative
+`"@bbc606: Ceefax - 27th April 2014. #bbcfootball http://t.co/FhWBdSMcCX" @phoenixsim remember Ceefax?!` | positive
+`@ItsMadhuriMania I have it on DVD, thought it would be nice to have it on my DVR too 😋` | positive
+`RT @thatGIRL_mani: “@girlnaiyahhhh: mf so nosey &amp; jealous 😂💯” thankchuu 🙌` | positive
+`Hope everyone that has school tomorrow seriously enjoys it 😜` | negative
+`#NOWSLAPPIN @tgunna415 @BigMack17 - Life Coach on @mobbreportradio http://t.co/Nplj4Ldbqy or D/L Tunein App` | positive
+`My legs...long...` | negative
+`@SirJoshBennett This is crazy and insane but I wish u'd come for a poetry workshop in Southern Africa ☺` | negative
+`RT @NickiSpadez: Black People End There PhoneCall By Saying "Ima Call You Back"💯😂✌️😎` | negative
+`RT @snugglespinosa: Nor risking it !!! http://t.co/X2R8BeO3xL` | negative
+`Effective Possession &gt; Possession   Just a thought   Two great examples this week  Chelsea and Madrid...Barely a touch, both won` | positive
+`Being in a relationship is not about kissing, dates or showing off. It's about being with the person who makes you happy.` | positive
+`@Kaley_Peterson yep. Walked in my house with my pants off and told my parents I was fucked. Hahaha` | negative
+`RT @Yuyuko_Saigyoji: The current time is 13:37 EDT. http://t.co/UJLd4KB1SS` | positive
+`Good nitte....everyone sweet dreamzz.....Sleep well n take care` | negative
+`RT @SpongeBobGetsIt: #SelfieSunday http://t.co/HQ2g8r8JsM` | negative
+`Softball: @BHSUAthletics continues to lead 2-0 top 4th #WNMUSoftball` | negative
+`I recommend to gain #newfollowers ► http://t.co/c3xk0fpfvg` | negative
+`RT @PINOY_QUOTES: Dear God, I might not understand why, but I do understand that you will carry me through. Thank You God.` | negative
+`Manchester City see off Crystal Palace to reclaim control of title race http://t.co/Kmim3K0FZZ` | positive
+`RT @CraziestSex: When Someone Texts You Some Bullshit &amp; You Don't Know What They Talking About http://t.co/POs1LWMEf7` | positive
+`RT @fierceornaw: Lady bullets givin me life since day 1` | negative
+`RT @AghyaGoel4: Come on Mumbai gain your speed like #nokiaX #haveyoumetnokia #M06` | negative
+`@AllyBrooke HI ALLY PLEASE BE MY 3/6 YOU SAVED ME I LOVE YOU SO MUCH IM MEETING YOU IN 90 DAYS 💗😚💗😚💗😚💗😚💗 xoajdhe` | negative
+`RT @wmydacraic: @Real_Liam_Payne hi liam if you see this please please plEASE FOLLOW ME` | negative
+`RT @QurratuAnini: ManUtd will not win BPL for this season but i would rather see MC ARSENAL or CHELSEA win BPL than LIVERPOOL ! Thats it :)` | negative
+`🌸🌸🌸🌸🌸🌸  @allybrooke PLEASE FOLLOW ME &amp; BE MY 4/6 ALLY I LOVE YOU SO MUCH   🌸🌸🌸🌸🌸🌸 shdh` | negative
+`RT @CharlieTango135: I love sleep http://t.co/JraP9Tw4fi` | positive
+`@eysnrmtl07 @behramtotoba Love it! I've been doing my car in Betty Boop. Will upload pics!` | positive
+`These girls ain't loyal` | negative
+`@Anahi back please` | negative
+`@samdispute personal message lol` | negative
+`@Mirandughh #ThisCouldBeUsButYouPlayin http://t.co/D3knKoK4D0` | positive
+`@NiallOfficial @Louis_Tomlinson Babe, your scar is so big, Louis why you draw this? hahaha I love my crazy boys ;)` | positive
+`Do they make pants for left handed people? I'm pretty sure my shorts I'm currently wearing were meant for a left handed girl, not me` | negative
+`Never been as skint as this in my lyfffff, roll on payday` | positive
+`RT @EddieTheYeti: My Solo Art Show - May 3rd - 1pm-7pm - Lakewood CO - Contact me for an invite. Please Retweet to help me get the word out…` | positive
+`@AllyBrooke PLEASE FOLLOW ME ALLY I LOVE YOU IT WOULD MEAN THE WORLD💖☺️   💖  💖  💖  💖 1` | positive
+`theres four trends about one direction rn` | negative
+`Some people, are meant to fall in love with each other, But not meant to be together.` | positive
+`Can it be @coachella already 😞 #withdrawals` | positive
+`I WANT TO STAB YOU WITH A SPOON` | negative
+`YOU &amp; I IS ON THE RADIO  THIS IS THE FIRST TIME I'VE HEARD IT ON THE RADIO` | negative
+`RT @peterparkerslou: @Real_Liam_Payne if i were you id cry come over to my house ill make you proper breakfast like pancakes and orange jui…` | negative
+`RT @enneyehcev: a lot has changed..` | negative
+`@NurseAdrianne @MemGrizz4life I bet he can't save them 2 more times!` | negative
+`RT @tim_tags: Big City Solstice, Falling White Feather 1 #painting, acrylic on paper - about east/west planned cities and soltices http://t…` | negative
+`RT @ConorMaynard: So what do you guys think of the #NewConorMaynardCover ? :)` | negative
+`@ChiefPat a goblin prince TH 11 and a new dark troop` | negative
+`Michael @Michael5SOS, please follow @sydniwarner for her birthday!  x68 http://t.co/u3qsNlpV5N` | negative
+`@Nashgrier @Nashgrier I GAVE RT,FOLLOWMEBACK? PLEASE ILYSM x2` | negative
+`RT @CrazyMofo_Geo: #RT for an account rate http://t.co/VoXpIpqwTI` | negative
+`RT @Love_BLENFER: Nice day out here in NY ☀️👌` | positive
+`“@CokeHeadMcgee: @KiDKarmaFrantz nope, next I'm getting your name tatted on my forehead” only if it looks like this http://t.co/HuN6ClFFfU` | positive
+`RT @smexy5SOS: RT FOR 10 FREE FOLLOWS💕 FREE BC THE FANDOM IS HAPPY💥 http://t.co/JQa3RIppOC` | negative
+`RT @CC2forlife: Accept the challenges in life with a smile on your face, so that you may feel the exhilaration of victory.` | negative
+`@Matt_Albring "You will never influence the world by trying to be like it." OMG, Matt! Amen! Have a nice new week!` | positive
+`RT @courtnneyy_: Dang. I really want Waffle House` | negative
+`@Bunch_SAN lol I should dunked yo ass 😈` | negative
+`RT @YT904: nothing but positivity` | negative
+`This wind is crazy..` | negative
+`RT @HaileeSteinfeld: “@DouglasBooth: Look who I ran into in NY !! @HaileeSteinfeld http://t.co/ijPdrcOBe6” Dougie!!!` | positive
+`Original African Toontoom Tumtum music http://t.co/VgfwTEYqQh` | positive
+`@MattWatson91 get well soon` | negative
+`Brendan Rodgers learns never to underestimate José Mourinho's caution \| Michael Cox http://t.co/QtBQsOTF4r [Guardian]` | negative
+`RT @DNA_JELLY: ♻️Retweet please it won't hurt http://t.co/IZRY7JuB5d` | positive
+`@__Section8 I been down bad . Thm mfss was $90 ... Niggas ain't juuging like he use too . Lbs` | positive
+`RT @Tayschornick: Greys the early years👅 http://t.co/eqOvDpc1FW` | positive
+`@yteezy_225star she don't fuck with broke ppl tho` | positive
+`And all uncles and sister meeting on skype! Dad n his brother from uk! Lol http://t.co/0gJaYMRhB7` | negative
+`Hey @kellysue -- Have you seen this very fierce #CaptainMarvel at @c2e2? #cosplay #strongfemalecharacter #CarolCorps http://t.co/Trt07pADSz` | positive
+`Pope Francis: "John XXIII and John Paul cooperated with the Holy Spirit in renewing and updating the church."` | negative
+`everytime I put a . at the end of a sentence i say it in my head like PERIOD!` | negative
+`Top nails are shit👊 only had em on 5 days and 2 has already come off😫😫😫😫` | positive
+`Somebody fancy skelpn me with there car so a dnt needy goty work #fuucckkkeed` | negative
+`Photo: #quote #lovely #true #porm #dnile #art #feelz #pretty #hellyeah #rad #rockon #wisdom #instagood http://t.co/ngCTeDgkeL` | positive
+`RT @StormieOmartian: Our ministry to others is nothing without the Holy Spirit working through us.` | negative
+`#LongLive1D this needs to be a trend tbh` | positive
+`We Stayed Up Till 6 In The Morning Just Talking 😕` | negative
+`#GreenHeroes Enter for a chance to win a 46" Samsung TV and Surface2 Tablet  http://t.co/17SRpBhjIh` | positive
+`💕💕💕  Calum Hood   If you see this  PLEASE follow me 🙈 it would make me the happiest girl ever♥  I love you very much.x @Calum5SOS 💕💕💕a` | negative
+`RT @1dCierra: #ThanksOneDirectionForChangingOurLives if it wasn't for Simon One direction wouldnt have exist all love one direction http://…` | negative
+`Hooray for being forced to go work even though I haven't even been payed yet for the last month 😒😂` | negative
+`@mckennaconor you stupid montrealer. Cant you check your TV Guide or the interwebs? #voiceoflaval #endtroll` | negative
+`rt for a dm to luke  no need to follow if u dont want to just rt this: https://t.co/LulKyxUuKv  im spamming this link to him x` | positive
+`RT @RealTonyRocha: #humantrafficking Village chief: No escort fee in bars http://t.co/pMX53duT48 #RealTonyRocha` | positive
+`Breakfast done right! 👌☕️🍳🍞 #thefam #mytwin #myfav #miamor #homeadebrunch @devindela @anne_rod3 @alo2113 http://t.co/RquMRFAOVA` | positive
+`RT @sriveraaa_xx: “@cheerUPDATES: The California All Stars - Lady Bullets SMSR5: Hit! #Worlds2014 🌎” yaaaaaas 👏😍 #LBOD` | positive
+`My Defence is at level 16! Are your citizens safe too? http://t.co/foAP1Fks3f #android,#androidgames,#gameinsight` | positive
+`RT @BabyAnimalsPic: I would die 😍🐶💞 http://t.co/RUZPMmjuaT` | negative
+`certain things you don't do for your hoes or with your hoes! 👏💯` | positive
+`@pointlessblog please dont forget me. Please alfie it would mean a lot.` | positive
+`Remember when you used to be a rascal? Oh the boy's a slag. The best you ever had. The best you ever had is just a memory and those dreams.` | negative
+`RT @TheFunnyTeens: seeing assholes you used to be friends with like http://t.co/yQHEYxDsoo` | negative
+`yall are retweeting fake dallas lmao` | negative
+`hi sunshine ˘◡˘  thank you for making me smile everyday it would mean the world if you followed me i love you so much  @NiallOfficial 241` | positive
+`I'll never have that chance tho. ...` | positive
+`Prime example of market competition in the app space - 3 apps, all competing in the same restaurant http://t.co/J6SpL7N3Zw` | positive
+`1/2 way there. Help save our community garden &amp; gathering space. Go @rocklandstreet https://t.co/oGzbUlBhBD http://t.co/ascKnNxKNi` | positive
+`Not Going To Church Sometimes&lt;&lt;&lt;&lt;&lt;&lt;&lt;&lt;&lt;&lt;&lt;&lt;&lt;&lt;&lt;&lt;` | negative
+`Ive been craving grilled cheese ever since justin uploaded the picture of his` | positive
+`I liked a @YouTube video http://t.co/SKdBgPA4uM "Till The World Ends (Remix)" Fan Video` | positive
+`RT @reactionstbh: when someone brags about being drunk and high all the time http://t.co/MdFrS7hyHL` | negative
+`RT @Long_LegLiteskn: Why I stay on my phone when I'm with you, but when I leave and you call I never answer it @TrillzLaFamil v` | negative
+`@Real_Liam_Payne we love you so much &lt;3 Please come to BIG country Russia :(  #RussiaNeedsWWATour😩` | positive
+`“@_sayTiyannaaaa: White ppl be happy for no reason”😂😂😂😂` | positive
+`RT @narendramodi: I have great respect for her but I wonder where did Mamata Didi's Mamata go? She put water on hopes of people &amp; is doing …` | positive
+`@DeVonFranklin let your inner voice speak to you,be quite you will hear` | positive
+`@NiallOfficial  Hi Niall ☺ Follow me please  It would make me very happy 😄  I love youuu 😘❤💕 184` | negative
+`i told sehun not to touch luhan afterall.` | negative
+`RT @JoyceMeyer: Just because you can't see it yet, doesn't mean it's not on its way.` | negative
+`http://t.co/mSlEmWkkzg told me 83% of people i follow don't followback, whats your followers #nonfollowback score?` | negative
+`RT @donellrawlings: haters gotta hate, everybody has a job son! http://t.co/iDGO8PcGe0` | negative
+`RT @AdelineZia: @JuliaMarino04 @Dory its adeline and the experience @stephciruzzi @natashaborrell1` | negative
+`@iGirly_Girl and u noticed especially Easter weekend` | negative
+`@kayciilove right` | positive
+`@SarahLipscombe @ellieparker4 most definitely! No one expected us to be up there fighting all the way!` | positive
+`“@ComedyHype_: #ComedyFact: 19 years ago today, April 26, 1995 the movie Friday hit theaters http://t.co/UcHiBWJKY6” #classic I remember!` | positive
+`and i wish i could run with you` | negative
+`RT @izayinegirl: FOLLOW TRICK  $ RT $ follow me, @CuddlingxLouis, @Nouisobviously, @btrwithmagcon, @Niams_Girl_x &amp; all who rts $ gain  #4Mu…` | negative
+`@BrunoMars Love you :)` | positive
+`We all have that one ex we're not proud of... But really, all of us had a basic flip phone before we upgraded 😏` | negative
+`I adore my parents and love seeing them having a good time in Charleston` | positive
+`a girl who's comfortable with being topless should come over so i can shoot her` | negative
+`"Who likes not his business, his business likes not him. - William Hazlitt"` | negative
+`4 laps to go. Marquez leads :D` | negative
+`RT @zoe_hutton: i feel so so ill` | negative
+`RT @tbhstew: I love people I can get weird with.` | positive
+`RT @LivingForAllah: He came to Islam 20 days ago, went to 'Umrah Friday of last week, &amp; died yesterday in mosque for Dhur. #GoodEnding http…` | positive
+`RT @sandrasoledada: When people tell me they can trust me I'm just like I forget shit anyways 😂` | negative
+`RT @nickberichon: One last push tomorrow!! This is what we have been waiting and working for!! @DitaHockeySA #NorthernsBlues` | negative
+`Graeme Souness is a proper bellend!` | negative
+`RT @GrantyRio: 20 years ago today THIS happened-and tears fell from my eyes as I took the picture. THE END OF APARTHEID @Forgeandco http://…` | negative
+`RT @JBCrewdotcom: Justin felt bad that he couldn't take photos with the Beliebers.` | negative
+`@SteadmanArt Court is in session! http://t.co/TErJpGro78` | positive
+`RT @izayinegirl: fav/rt all my tweets for a better chance to get picked` | negative
+`RT @Real_Liam_Payne: “@MonsoonLou: GUESS WHO'S STAYING A BAND FOREVER http://t.co/jFLpOUEEXr” true story` | negative
+`White House, United States  #UnitedStates #USA #ff http://t.co/EfLK7z5j3L` | positive
+`@MerisOn_YaMind well I won't be satisfied until I seen Justice league lol` | negative
+`#LongLiveSnupe 🍃🍂🌿` | negative
+`RT @DoltYourseIf: RT for your chance to win a $25 gift card from Starbucks! ☕ Must follow us. Winner announced @ 9pm eastern time 🙌😁👌😎😘 htt…` | negative
+`so on the 17th of may i think someone should come get piercings and then get rather "merry" with me after` | positive
+`RT @aaroncarpenter_: I need a hat ugh` | negative
+`RT @vineapp: Smile! 🐶 https://t.co/jEuMNlkdtM` | negative
+`milkbbi's new collection is so cute *__*` | negative
+`Im a real life weirdo.` | negative
+`@PeacockEsq @_MirandaWrites_  The one with the law firm diversity memo via Jezebel. Hmm, I thought it was linked to this convo.` | negative
+`RT @Trenduhh: stay close to anything that makes you glad you are alive.` | positive
+`RT @STARANDBUCWILD: Are You Still Eating Pork Black Man? http://t.co/ZgFyF3QBip` | negative
+`RT @Shweem_: @Alaya__m ily my alaya😭💖 you make me happy everyday💖💖` | negative
+`RT @SayNOtoHOES_: #musicthatdontmatch https://t.co/qpd5y2LcAv` | negative
+`RT @marylene58: @MouseCyber @Bigmo486 @Ckirkusa @rosenbaum_markf @TangerineSkies2 @freedmeto @topdrive496 Hi Kitty` | negative
+`RT @Country_Words: She's got her daddy's tongue and temper, sometimes her mouth could use a filter, God shook his head the day he built her…` | positive
+`@justinbieber @justinbieber please follow, i love you sooo much! Your follow would mean sooo much☺💕✌140` | positive
+`RT @tascorryanne: You could say I'm just a fool that stands for nothing, Well to that - I say you're a cunt.` | negative
+`RT @VinnAy88: That penalty you HAVE to take` | negative
+`Popular on 500px : Sand Waves by AbdullaAlmajed http://t.co/CHnK7Q1r06` | positive
+`Lady Gaga's Born This Way Ball turns 2 years old today! It's the 8th highest grossing tours by a female! http://t.co/1YZf096BSw` | positive
+`RT @BestTextMsgs: That one crush that never really goes away.` | negative
+`RT @OneFunDirection: Liam is so cute and sweet I just adore him` | negative
+`RT @MVGold__: Niggas Don't Keep It Real No More.` | negative
+`My nails grow so fast.` | negative
+`When #MomsDemand your private medical info becomes public record you know #obamacare &amp; NSA were just the beginning #2A #NJ2AS #IndyGunSense` | positive
+`never depend on anyone but yourself.` | positive
+`STOP SCROLLING  I love you and i hope you day is going well  OKAY CONTINUE.` | positive
+`Thank GOD mom is ok from her 1st dose of chemo...only @ http://t.co/Gr6s37dW0w #superstars #film #jeans… http://t.co/XK5kUSsts0` | positive
+`Good Luck crazy boys xxxx we need you angels @zaynmalik @Real_Liam_Payne @Louis_Tomlinson @Harry_Styles @NiallOfficial ❤❤❤` | positive
+`And family don't make it no better` | positive
+`RT @EuromaidanPR: Water channel going to #Crimea was shut by #Russia not #Ukraine to upset Crimeans some more http://t.co/IsSDRu6vTk http:/…` | negative
+`Turning Point of the game --&gt; Vineet Kulkarni by his wrong decision #PepsiIPL  #eit20` | positive
+`Hey Refs, you're not fooling anyone. You want philly to win this game so bad.` | positive
+`@BryceKuschel @GinoBeaut24 you cant say a team is bad when they completely outplay a team in most areas of the game` | positive
+`☔️💎☔️💎☔️💎☔️  @Real_Liam_Payne   liam payne What do you call a bear with no teeth?  A gummy bear!  please follow @urnotniall?  ☔️💎☔️💎☔️💎☔️ 15` | negative
+`RT @taffylovell: Best Novel of the Year winner: BLACKMOORE by Julie Donaldson @AuthorJulianne #Storymakers14 http://t.co/TQqzQk13WO` | positive
+`RT @StevStiffler: MY BRAIN:   5% Names   3% Phone numbers   2% Stuff I should know for school   90% Song lyrics` | negative
+`@iCanHearAshton @willdarbyshire clem omf it's gonna be awesome` | negative
+`Kendall: "oooooohhh Kia just got told"` | negative
+`@_RealGame It's not funny 🙅` | negative
+`@Melissa4Wheelin One chick asked me about Rudys marital status seriously` | positive
+`@iExploreNiall @Real_Liam_Payne YOUR*` | negative
+`RT @Sunnybluesky321: @IslamIsMerciful @HumairaMayet @TallDaveSE11 &lt;~ the epitome of tolerance.......NOT!` | negative
+`@Real_Liam_Payne Follow me please ☺☺3` | negative
+`@darnelltho giggle` | negative
+`@beckymillinson that one and the caramel one beat the rest by a mile` | negative
+`Smoked brisket and cole slaw #thebaoshoppe (Texan Bao @ The Bao Shoppe) http://t.co/XkUX6z88B3` | positive
+`RT @_Goldengal: I really keep everything to myself I don't tell my friends nothing😩 I need to start telling them.` | negative
+`@lifeofchink_ lol I'm sore right now because I busted my ass so bad yesterday at GradBash` | positive
+`RT @CHlLDHOODRUINER: If you ever fall in love... 🙌 http://t.co/cnIbleXhyf` | positive
+`I dont have friends im over that shit !` | negative
+`...that's better,` | positive
+`“@MacMiller: This woman checking us in at the airport is absolutely amazingly incredible. And possibly from narnia.” 😂😂` | negative
+`RT @Nicolle_Cox: @Real_Liam_Payne  Hello Liam Please Rt O Follow me Liam Yo te amo buenos dias mi amor como estas #HondurasNeedsWWAT #WWATH…` | negative
+`RT @9GAG: Sex scene on TV + Parents in same room = Awkward atmosphere` | negative
+`RT @TheTumblrPosts: I almost died when I read this 😂 http://t.co/njskAo5m6s` | negative
+`windows mobile software cloud #app` | negative
+`I'm gaining followers and I don't know why but thank you for following me and ily` | negative
+`RT @Real_Liam_Payne: “@MonsoonLou: GUESS WHO'S STAYING A BAND FOREVER http://t.co/jFLpOUEEXr” true story` | negative
+`RT @_Deleanor: Cuties! 💓 http://t.co/YvR2Ns8IHL` | negative
+`those who focus on things within their control are often the most successful &amp; fulfilled. Those relying on others failing are often neither` | negative
+`RT @Real_Liam_Payne: This is the best day ever can't believe I've been trending this long aha hank you guys` | negative
+`@Maalng road village side par tooti hai but bearable hai, it is like 30 min to jammu` | negative
+`RT @FriendsComedy: #FriendsFact http://t.co/0bCVm5F6nR` | negative
+`RT @Symonee_05: @_ChaeeeMoney thank you . 👌😂😂` | negative
+`@Burgey_94 crying..? serves you all right for bein arrogant presumptuous assholes. Love it.` | positive
+`RT @squishyfacecal: rt for 10 free follows:)   mbf pleaseee` | negative
+`#HIPHOP #NEWS \| The Game Spotted With Side Chick Out In L.A. [PHOTOS] http://t.co/WrKcbYcZbK \| #UPDATES &gt; @HCP520` | positive
+`RT @Fact: 5 Sure Signs Your Partner is Being Unfaithful... http://t.co/cZsYc00FZ6` | negative
+`@MEMPHISPTAH @SheIsNancyD @djspaceage I was chillin had a mission at hand http://t.co/JvjnCZq90B` | negative
+`Emotions are gods curse to women.` | negative
+`" why would you call a skank bag a skank bag " - @_LALALAUREN__` | positive
+`Swerve.` | negative
+`Yass #funtimes!` | negative
+`RT @molly_emily: Exams in 2 weeks http://t.co/DiFBNHJREa` | positive
+`“@taayyyl: @jennifersoler18 @chelseaamandaa youre the only person acting immature here..” No😂 lets ask everyone else😂` | negative
+`RT @BieberAnnual: Retweet if you want to gain just follow everyone who retweets this and follow back who ever follows you` | negative
+`RT @Destineesis: ☯Gain Followers ☯RT This ☯MUST FOLLOW ME I FOLLOW BACK ☯Follow everyone who rts ☯Gain   #gameinsight #androidgames ng61` | negative
+`RT @Vonchalant: this the black twitter mixtape album cover http://t.co/gSonervybu` | negative
+`RT @TheLifeDiaries: No matter how "busy" a persons day might be. If they "really care", they'll always find time for you.` | positive
+`RSS'S ANTI-DALIT 'SECRET CIRCULAR'   Saffron Fascism Shyam Chand Pages: 182  Rs 200 Unity Publisher 855/2,... http://t.co/ckg1mGOIXb` | positive
+`Gonna stock up on jewelry on my trip to Florida #shoppingaddict` | negative
+`I sit back and observe people and their actions!` | negative
+`@sakuraborealis please tell me they have names` | negative
+`@TacticianRobin Aah, that's better. It's good to be back... Robin, I have to tell you something. Something I don't tell you often enough.` | negative
+`RT @BMS_ThadCastle: Donald Sterling be like http://t.co/V4rM1qS1SS` | negative
+`@cecilesites and call it Tom Bjork.` | negative
+`RT @Derpey: When you can't draw anything but eyes: http://t.co/FXBznqtFk3` | positive
+`RT @ConorMaynard: So what do you guys think of the #NewConorMaynardCover ? :)` | negative
+`So I have discovered Chase Rice. A little too close to finals week though. #ImObsessed` | negative
+`RT @alexsteed: More from the blog: @BillBurr came to the State Theater and endured the audience like a professional \|\| http://t.co/OcUOhwoC…` | negative
+`RT @GossipExtra: #beliebers #selenaexposed :Selena Gomez being deposed right now in #LosAngeles area in #JustinBeiber lawsuit! http://t.co/…` | negative
+`birthday cake milkshake and chicken finger meal😍😈 http://t.co/fBUeZypu9e` | positive
+`RT @Real_Liam_Payne: Sat next to the niallanator in the car ... Gosh those legs are ferocious!` | negative
+`Hagalin has spent half the game in the box` | positive
+`It's how I still haven't done any work though and I'm just laughing at tweets about A-Level work instead of doing the work 😂 #fml` | negative
+`Visited alexia at work😊` | negative
+`RT @iamrobrown: why these pigeons look like they bout to drop the most fire album of 2014 http://t.co/pMsL1vAI7d` | positive
+`Suit up!` | negative
+`@Nelsen09 @ChrisDeters oh yea I forgot to mention you must beat Fred as well` | negative
+`WE BE ALLLL NIGHT.....🙌.... LUUUUHHHHHHHHHHHHHHHH😍💋👅💦` | negative
+`RT @Fact: Disturbed sleep is linked to psychosis. Waking someone up out of their sleep can literally drive them temporarily insane.` | negative
+`A fox literally just ran through my backyard` | negative
+`@pizzahutlukey yeah how'd you know woAH` | positive
+`RT @ALLCAPSBRO: I'M GONNA GO ON A SPEAKING TOUR WHO WANTS TO LISTEN TO ME SPEAK NONSENSE FOR AN HOUR OR SO` | negative
+`RT @Ianasferreira: #happybirthdayelectraheart http://t.co/R6x2zzk1H5` | negative
+`@Scarrboros oh bby &lt;33` | negative
+`@AllyBrooke ALLY FOLLOW ME PLEASE ILYSM 🌸🌸🌸 14` | negative
+`RT @qtdinah: 🌸🌸🌸🌸🌸🌸  @allybrooke PLEASE FOLLOW ME &amp; BE MY 4/6 ALLY I LOVE YOU SO MUCH   🌸🌸🌸🌸🌸🌸 widhej` | negative

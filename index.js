@@ -50,7 +50,7 @@ natural.BayesClassifier.load("classifier.json", null, function(err, classifier) 
           "------|------\n" +
           results.reduce(function(results, result) {
             if (result)
-              return results + "\n" + result.content.replace(/\n/, " ") + " | " + result.label;
+              return results + "\n" + "`" + result.content.replace(/\n/g, " ").replace(/\|/g, "\\|") + "`" + " | " + result.label;
             else
               return "";
           });
